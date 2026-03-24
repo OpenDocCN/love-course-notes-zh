@@ -1,0 +1,148 @@
+# 【A27】其他未分类：3、从G点菜鸟，到潮chui大神（完结）：潮chui大神：03.什么是真实的潮吹？：03.什么是真实的潮吹？【加微信：kc58567获取更多此类课程 】
+
+What is squirting is squirting P can all women's squirt is squiring always an orgasm Let's find out Hi。
+
+ my name is Dr。 Janna and I'm a sex researcher， professor of human sexuality at New York University and I recently sifted through all the research on female ejaculation from ancient Chinese text from the fourthth century all the way to biochemical analyses of what's in the female ejaculate from 2015 and I want to share with you some of the knowledge that science has on female ejaculation。
+
+What is squing So squing is basically the expulsion of fluid from the genital urinary tract in women that happens during sexual activity。
+
+ it can be pleasurable and it can be accompanied with the subjective experience of an orgasm。
+
+ but it doesn't have to， it often is not。What's Stevejaccuulates made of and where does it come from？
+
+So this is the million dollar question the specific content of the female ejaculate and the anatomical structures that it comes from are still being debated in the academic community there are maybe eight or nine studies that have been published on this topic thus far and many of them have fewer than 10 participants so we still don't know a lot about this but from what we know there is as of now tentative consensus that there are two different types of female ejaculate okay the first one is a small amount of milky white fluid it's about a milliliter to 15 20 milliliters in amount so something like this obviously it's not blue。
+
+But it's Mily white and it's thought to come from the skins glands。
+
+ which is the sort of female equivalent to the male prostate and we think this because that milky white substance contains high levels of prostate specific chemicals Now the skins glands which are embedded in the wall of the urethra。
+
+They are themselves a bit of a mystery still， it is thought that maybe not all women have them。
+
+ that maybe only about half of the women have them and they can come in a lot of different variations in terms of size and positioning and types of  duck。
+
+🎼The other type of female ejalet is the gushing type， right， the one that people see in porn。
+
+ the one that is most often associated with squiring。Now。
+
+ this is typically a clear odorless fluid that can range in quantity from something like 50 milliliters all the way up to 900 milliliters。
+
+🎼900 million。this amount of gushing squirt is thought to come from and pass through the bladder and then get expelled out of the body through the urethra just like urine does Now depending on when a woman has peed or how much liquidy is consumed beforehand。
+
+ this gushing squirt， its chemical composition can range from urine or mostly urine to highly。
+
+ highly diluted urine。Is squirting something new that porn invented recently？🎼No。
+
+Squiting or female ejaculation as part of pleasure in our orgasm has been mentioned by doctors。
+
+ anatomists， poets， writers， psychologists later on in both Eastern and Western culture going back a few thousand years。
+
+So for example， in ancient China， in the fourth century， from the fourth century on， there are poems。
+
+ there are taoist texts that mentioned not as explicitly and scientifically as we speak of it today。
+
+ but in some way mentioned expulsion of fluid during orgasm。
+
+ similarly in ancient Indian text in the Indian poems from dating back from the 7th century all the way to the 16th century。
+
+ there are mentions of female ejaculation。In the ancient Western world。
+
+ there is some possibility that Aristotle in 300 BC may have mentioned something about female ejaculation。
+
+ as well as the second century famous medical doctor， Galen。Then in the 16th century。
+
+ Bnier the graph provided the first scientific description of female ejaculation and he linked it to what he called the periethra glands。
+
+ which we today know as the Ss glands as the female prostate that this female ejaculate came from unfortunately our Western medicine forgot about the grafts discovery for many。
+
+ many centuries you know because female pleasure and orgasms really were in top priority during those times。
+
+ but fortunately we did rediscover it， so in the 1950s Er Grffenberg reported in a scientific article the role of the urethra in female orgasm。
+
+ and that's when he linked this expulsion of fluid to stimulation of what we think of today as the G spot。
+
+ the Grffenberg spot and that is the interior， the front wall of the vagina。
+
+And in case you're thinking that maybe modern Western porn has a monopoly on squiring， it does not。
+
+ apparently， during the very prudish Victorian times。
+
+ there were pornographic novels describing female ejaculation。🎼How many women have squirted。Well。
+
+ we don't have a lot of evidence， but we have a couple of studies of this kind ever conducted and they find that somewhere between 40 and 55% of women say that they've ever ejaculated however。
+
+ none of these studies has used a representative sample of any kind so those percentages are highly unreliable the honest answer as of now is we really don't know for sure。
+
+K all women squirt， we simply don't know that。Because what exactly squared is and where exactly does it come from is still being debated。
+
+ we also don't know if all women have the anatomical and physiological structures necessary for female ejaculation to happen。
+
+There's been only one study that has tried to answer this question in a more experimental way and if I may say so in a quite an unorthodox way。
+
+So in this European study， the researchers who were also mostly medical doctors brought into the lab 27 women。
+
+ these were patients at a fertility clinic， it was unrelated to whether they had experienced squirting or not before but they all agreed to be part of an unusual experiment The researchers stimulated each of the women using either the researchers' hands or toys on four separate occasions lasting up to any they were trying to do guess how many 37% not managed to ejaculate even after four hours on four separate occasions of trying really。
+
+ really hard。🎼Now of course this is only one study and with only 27 women done a while ago。
+
+ so you could argue that maybe the researchers didn't really do this very successfully and that we certainly need more research there is no doubt from more anecdotal experience like my business partner Kenneth play who's been sort of famous for successfully getting women to squ his success rate for firsttime quarters has been actually much higher than this 37% and his sample size also is higher so possibly。
+
+More women or most women could squir it， but we just don't have a good scientifically proven answer to that question。
+
+What type of stimulation gets women to squirk？So the most wellknown sort of famous way that people talk about squirting or teach squirting or thing that squirting happens is the come hiter motion。
+
+ so basically two fingers， about two knuckles in with doing that come hiter motion inside the vagina。
+
+ stimulating the interior or the front wall of the vagina。However。
+
+ in the few studies of squirters that we have， this was not always the goto method for all or even for most of the women who had experience with squiring in one study of 230 squirters for example。
+
+ 35% said that it was this type of come hither internal vaginal stimulation that got them to squirt 19% said it was actually external cllateal stimulation and 72% that it required both or that the most typical way for them to squirt was to have both external and internal stimulation In another study of 320 squirters。
+
+ it was even these split， about 50% of the women said that it happened primarily through external pral stimulation。
+
+ the other 50% said that it happened primarily through internal vaginal stimulation。
+
+How common is squirting with clol and or vaginal activity？Not very common。So even among squirters。
+
+Only about 15 to 20% said that it happens with most or all of their orgasms。
+
+In another study where researchers stimulated the clip of 38 healthy women using a vibrator and then checked for any kind of expulsion of fluid from either the vaginal opening or the urethra。
+
+ they found that not a single one of the women expelled any fluid during orgast。
+
+And going back to Master and Johnson where in their study of almost 400 women over 11 years where they recorded complete cycles of sexual activity。
+
+ they found very， very few cases of female ejaculation。
+
+ so few in fact that they thought that female ejaculation wasn't even real because it was just not very common。
+
+ so bottom line， female ejaculation is not a very common activity for most women most of the time。
+
+Is squiring always an orgasm？🎼酿。Now we tend to associate something coming out with an orgasm because that's what you see in men most of the time when something is coming out of their penises。
+
+ they are at the same time having this subjective experience of an orgasm for women that is not necessarily the case sometimes yes。
+
+ when you are squirting you are having the experience of reaching a climax but at other times that physical expulsion of fluid which can sometimes be involuntary because someone is providing the right kind of stimulation and something is coming out that may not at all be paired up with the subjective experience of reaching that climax。
+
+ in fact， sometimes it can even feel a little unpleasant or feel like it's hurting and it's not actually at all related to pleasure and or orgasm is just a physical thing that happens。
+
+Is a squirting orgasm better or stronger or more intense than a regular non squirting orgasm？
+
+Science honestly doesn't know yet。There is very， very， very， very limited data on this question。
+
+ in fact， there have been only two squirters in one study that have been asked this question ever in the published academic literature。
+
+ whether you know they thought their squirting orgasms were more intense than their non-s squiring orgasms。
+
+ and both of them said yes， it was more intense， it was better when they came together with squiring versus when they came without squirting。
+
+ however。This is really no data at all， and we need a lot more data on this particular topic from anecdotal evidence。
+
+We know that for some women， it is indeed much more stronger or better or more intense when they have an orgasm paired with squirting than when they have a non-siring orgasm for other women。
+
+ it doesn't make much of a difference for other women it's actually somewhat unpleasant when they're squirting so it's not at all an orgasm。
+
+ but there is a fair amount of variability both across different women in within women。
+
+ so even the same woman can sometimes feel like that squiring orgasm was absolutely mind-blowing versus this squirting orgasm was really like a lot worse than the non-s squirting orgasm she had 10 minutes ago。
+
