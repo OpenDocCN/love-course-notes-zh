@@ -1,0 +1,36 @@
+# 【A27】其他未分类：3、从G点菜鸟，到潮chui大神（完结）：潮chui大神：05.真人+模具对比，学会找到她的“快乐按钮”：05.真人+模具对比，学会找到她的“快乐按钮”【加微信：kc58567获取更多此类课程 】
+
+Welcome back， so this is Claeracy 101 and I've been trying to find different teaching methods to really show about the vva and the internal Claariis and I've been thinking and thinking and I'm super lucky to have Lola Jean here and showing her vva。
+
+ but I brought a little extra another vva。I had this custom made vva puppet and I wanted to show it in a way that really demonstrate not only the vva。
+
+ which is the external side but what their internal clitoris structure when the inside really look like so when most people look is they only to see the clip from the very top like right here I want you to see how is in relationship with their entire structure so I want to start with you see the hood right here So this is our hood equivalent right here and if I pull back with my finger same thing like this puppet。
+
+I could hold up， put it up and this is where the head of the clitoris is。
+
+ all the external part that is that you could see and expose。
+
+ but what you don't see is that we turn this all the way behind。
+
+Ifs their entire structure kind of sits。Like this， wrap around。
+
+🎼The vaginal tunnel right so where those bulbs is kind of like a penis it gets in go with blood is's mostly hidden right underneath here。
+
+ So a lot of time when you massage this area right here。
+
+ it feels very good as you want to increase more arousal and more。
+
+Blood flow into this area and also I want you to see it from the side。
+
+Right so when there is penetration。And there's rapid movement on the G spot。
+
+ which is kind of right here， you rocking their entire clitoris if this external stimulation is kind of doing this movement。
+
+ which some of my lever find this extremely pleasurable so it's not so much fiction going in and out but kind of the rocking motion internally off the clitoris that might in my perspective are producing the sensation that I want to do so back to the vvafing forward I want to go over again so this is the hood right and the lips right here and this part is right here so you kind of want to play with the entire area。
+
+And moving around， so when I'm pinching here， I'm pinching the entire lip。And just。
+
+🎼Kind of using every part of the vva and learning the 3D location of where the clitor is in the inside So my goal is to help you increase your cliteracy that you not only seeing the vva structure from the outside and locating the clip from the outside。
+
+ but seeing the entire clitoris structure on the inside and where it sits so you understand this beautiful clitoris all the way in the inside and in relation to the 3D structure of it。
+
