@@ -1,0 +1,190 @@
+# 05、朱利安 《Ten game十戒》：2.任务：4.1任务1 4.1 Mission 1_ev【加群主微信kc58567获取最新更新】
+
+🎼爱了多久。🎼Before I laid my eyes I laid my eyes on you take my off This is Julian and welcome to the first infield mission。
+
+ Now at this point， you've already gone through the 10 laws。 So you know what game is。
+
+ Okay you logically understand it。 You've gone through the infield breakdown。
+
+ So you emotionally recognize it as well。 you've already experienced it within you going through the interactive exercises。
+
+ but it's now time to go out and fucking implement it。
+
+ Now I want you to view these infield missions as your weekly game workout schedule。 Okay。
+
+ this is what inspired me to create them。 if you go to the gym。 you know。
+
+ you're not just going wing it。 it's pretty where someone goes to the gym is like oh。
+
+ you know I heard you got to lift weights。 let me just do this。
+
+ you stick to your workout schedule and you tweak it over time。
+
+ this is how you really make you know fast progress。 and this is what we're going do here with game。
+
+ Okay for the next 10 weeks。 I'm going to give you your weekly game。
+
+that schedule and you're gonna stick to it and we're gonna tweak it over time as well。
+
+ Okay And for the first week here， your first mission。
+
+ we're gonna work on making this part of who you are part of your everyday life。
+
+ and we're gonna work on consistency So this isn't something that you just turn on every weekend when you go out。
+
+ it's actually who you are on a day to day basis your mission is for the next seven're gonna go out every single day a minimum of 30 minutes。
+
+ And when you hear this， don't freak out don't be like my life is so busy What do you mean going out every fucking day it's just 30 minutes。
+
+ I'm sure you can 30 minutes every single day no matter how busy you are cut your think you can survive for the next seven days sleeping 30 minutes less the answer is yes and you can even spread it out you can do like two minutes on your way to work5 minutes on your lunch break two minutes after work。
+
+ you can go to the shitty bar if it's like maybe a Monday or Tuesday's just like a couple blocks away。
+
+ It just。Okay， as long as overall，30 minutes， every single day， you're out interacting with girls。
+
+ Okay， a date counts as well。 I basically just want you to not view this is something that you turn on when you go out on the weekends。
+
+ Okay， this should not be a big deal。 And this is what making it part of your day to day life will accomplish。
+
+ Okay， well right now， if you told me like， hey， go out every day for 30 minutes， I'm like。
+
+ oh my God，30 minutes going out and interacting with women。 I'm like。😊，Of course。You know， it's like。
+
+ yeah， it's not a big deal at all。 It's just normal。 It's not like pick up time。 It's， oh。
+
+ I'm just just chatting girls。 You know， you're in line at fucking Starbucks。 How's it going。
+
+You know， you can probably get in like five minutes there。 There， There's just five minutes。You know。
+
+ say you're at the fucking grocery store another five minutes。 You're walking down the street。
+
+ Maybe it's after work。 you're heading home instead of going home and watching， you know。
+
+ some little TV show。 You just chat someone。 Here's the after hour bars。
+
+ after hour restaurants like patio has it going。 Now you got your 20 minutes in。Okay。
+
+ it's really not that hard。 And it should not be that fucking freaky。 Okay， this is really。
+
+ it just pick up like the less of a big deal， the better。 even you interact with girls。
+
+ If you don't view that as a big deal， it'll be a lot more casual。 You'll get out of your own way。
+
+ Stop viewing sex is a big deal。 This is not， again， the big pick up time that I turn on。 Okay。
+
+ so you really have to make this part of your day to day life。
+
+ It's a way of being where every single day。 Okay， for the next seven days， You're gonna go out。
+
+ Okay， and now you also notice here。Is。You know， if you've applied what you've learned so far。
+
+ I'm sure you had an awesome night doubt。 Okay， and I've been reading through， you know。
+
+ the 10 game Facebook group。 and， you know， some of the stories are just fucking epic， however。
+
+You probably realize you go out。 You apply this。 You have an amazing time out。 You go home。
+
+ And then the next day， the old thought patterns， take over and you're back until， you know。
+
+ you're kind of stifled， you know， headspace。 And what you have to understand is that right now。
+
+ this stifled you。 That's you that you've been building over all these fucking years。
+
+ There's a lot of， you know， autopilot thought patterns that just take over。
+
+ And if you want to make the you that's out。 You know， on the fucking weekend， having those epics。
+
+ you know， times out this epic experiences。 part of who you are。
+
+ you're gonna have to work on this daily。 Okay， you're gonna have to really start letting go of all these fucking autopilot thought patterns that are getting in the way like。
+
+ stay stifled， stay conditioned， don't express yourself。 This is。
+
+ this is you the quiet introverted you。 you're gonna have to get more references and start installing new thought patterns that。
+
+Basically promote the opposite。 Okay， And if you just do this like once every week。
+
+ like on the weekend， it's gonna be very hard to just make this who you are。 Okay。
+
+ it's gonna to be very hard to get out of your own fucking way 24，7。
+
+ So you have to do this every single day。 And what you also realize is that you're gonna build a momentum。
+
+And this is something that really helped me when I started out in game。 I started out in Switzerland。
+
+ And I remember at first， I just go out Friday， Saturday。 And what I realized is that Friday。
+
+ it was always hell。 You know， I'd not gone out like the first， you know， like Monday to Friday。
+
+ I'm just like， oh my God， like kind of in my head。 Here we are the weekend。
+
+ And I'd hustle hard on fucking Friday。And it would usually take all night。
+
+ And then towards the end of the night， I'd start kind of getting in that nice flow。
+
+ really getting out of my way， expressing myself。 It was pretty awesome。
+
+ wentnt home and Saturday hit。 And Saturday， instead of starting down here where I was out on Friday。
+
+ I kind of started up here。 I was like， oh， I kind of pick up where I left off。
+
+ tookook things even further。 And then I wouldn't go out until the next Friday。😊。
+
+And what I'd realize is that every fucking Friday， I'd always restart at ground 0。
+
+ and I'd waste every Friday， getting back to where I was at the previous weekend。 So if right now。
+
+ and this is what I changed up in my game in Switzerland instead of just going out Friday， Saturday。
+
+ you also at every single day in between。 you maintain that momentum。 Okay， now。
+
+ nothing's really probably gonna happen in 30 minutes。 You never know， though， You really never know。
+
+ But say you go out Friday， you build it up Saturday， you pick up where you left off。
+
+ you go out 30 minutes， you stay up there。 And when the next Friday hits。
+
+ you pick up where you left off instead of wasting every fucking Friday。
+
+ getting back to where you were at。 Okay， it also keeps that feeling of as I mentioned before。
+
+ being uns stifled， feeling good， getting out of your fucking way alive and it just starts setting it is this is the new norm。
+
+Okay， so this is crucial。 You have to do it make again， this is the mission。 This is the challenge。
+
+ The the next fucking seven days。 every single day go out for 30 minutes minimum。 Okay。
+
+ as I mentioned to a date counts。 if you're in some small you know， city somewhere。 What do you do。
+
+ just go out， say Thursday， Friday， Saturday， try to maybe some numbers and then set up some dates。
+
+ and if not just go to a shitty bar。 even if there's no hot girls just interact with females。 Okay。
+
+ this is you now， you're going out。 youre putting yourself the situations It's not like I'm me who stifled and it's the weekend and I explode。
+
+ so every single day， and to hold yourself accountable。
+
+ I want you to create a post in the 10 game Facebook group。 you're gonna create a post。
+
+ say mission one， and every single day under mission1。
+
+ I want you to just write a little recap of your 30 minutes。 Okay every single day。
+
+ and I'm gonna scroll through them。 I'm not gonna answer all of them。
+
+ but I'm gonna scroll through them。 and I'm just gonna see you know whos。Actually doing this。
+
+ Who isn't And you know， just hold yourself accountable， Try to do it every fucking day。
+
+ next seven days， you're out， you're doing this and you'll realize like after a while。
+
+ it'll just be very fucking easy。 It'll be smooth， maybe a little tough at first and you'll realize like who。
+
+ it's resisting this， but it really wasn't that big of a fucking deal Okay so。S day challenge。
+
+30 minutes a day。 That's your mission。1。 We're going to build on this。
+
+Next week with the infield Mission two， create that fucking post in the1 game Facebook group。
+
+ post in it for the next seven days， and I'll see you next week。
+

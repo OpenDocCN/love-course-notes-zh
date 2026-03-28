@@ -1,0 +1,92 @@
+# 05、朱利安 《Ten game十戒》：1.十戒：戒律4 - 真实 第一部分 Law 4 - Be Real part 1【加群主微信kc58567获取最新更新】
+
+The next one here is just in terms of being real。This year applies to however you feel。 So。
+
+ for example， if you're out of state， don't fake， be an end state。 embracebra it。
+
+Embrace being out of state， being real in terms of your of your vibe， being authentic。
+
+Being real in terms of being man to women。That's real if you're not man's a woman。
+
+If you feel guilty about your intentions， you're not real。And realness is so much value。
+
+ the same as like fun carefree passion because no one's fucking real。
+
+ especially if they're talking to a hot girl。Every guy who's talking a hotg girl wants either the approval or wants to fuckcker。
+
+ if they're nice， they'll be nice to get the approval。 If they're be mean。
+
+ they'd be mean to get the approval because they heard ashole assholes gay girls。
+
+ They're never fucking real。 And I talk about this in my manifesto。 If you've seen it online。
+
+ a girl's like a millionaire in a club surrounded by poor people。😡。
+
+And everyone's going up and they're acting different ways， but there's always that hidden agenda。
+
+Get rid of the agenda。It's a breath of fucking fresh air。
+
+ and she will love you and fuck you for it with realness， by the way。Couple things。 Okay。
+
+ this clarity of intent will mean man to women。Is something that should naturally happen in the vibe。
+
+And this is huge。 Okay， so things like push pull， you all heard of push pull， right， I love you。
+
+ I hate you。 push pull， things like statements of intent。 You all heard that。😊，It's telling to go。
+
+ hey， I like you， he， you're beautiful。嗯。Being physical， laser eye contact， stuff like that。
+
+We all tend to think this is what makes it man to woman。Yes。😊，It can amplify it。
+
+ but the way you should view all those things， anything that you do is like training wheels to unlock the man to woman。
+
+Big， okay， so most of us we go out and we're not real because we're afraid that if we are real。
+
+ we'll get rejected if something bad will happen so you hold back parts of your personality。
+
+Now see you learn about push pull。Okay， and one thing I'll sometimes make guys do if they need to work on this is like。
+
+ go up in a girl。 like，'s it going。 are you from San Francisco。 And whatever she says， if she's like。
+
+ yes or if she says she's from somewhere else， wherever she's from， fuck that place。
+
+Just tell her like， oh， you're from San Fran。 No， where are you from， New York， F， New York。
+
+ like that。With a smile。Basically， creating a little bit of playful friction。
+
+ something that most of us fear。 And what you'll realize is that nothing bad will happen。In reality。
+
+ if you do it right， her reactions to be like， what， why？Now。
+
+ does that mean you should do it every single time。 No， Does that mean you should use a technique。
+
+ No， But that was basically the training wheel to prove to your mind nothing bad happens。Which now。
+
+Gives you permission to bring some more realness out。That's the way it works。
+
+ The same with statement7 intentts。 Most guys are so fucking scared of letting the girls know that they like them。
+
+ So they hold it back。They come up with excuses， they justify their intentions。They're like， oh。
+
+ I was looking around and I saw， oh， hello， are you looking for the place too。
+
+Why are you talking or like coming up with reasons for why they're talking to her， no。
+
+ you're talking to her because you're a guy， she's a girl。Shameless。Okay， but it's tough to do。
+
+ So saying those statements of intent can desensitize you to actually being okay。
+
+With letting that out in the vibe。Same with being physical， the same with laser or eye contact。
+
+ There are the training wheels。 Once you unconscious consciously give yourself permission。
+
+ then it should just naturally come up。 I can talk to a girl。 I don't have to tell her。
+
+ I like her for her to know。 I don't have to be physical for her to know。
+
+ I don't have to consciously think about push pulls。
+
+ They'll naturally happen as a consequence of me being real。 Some shit shall love。 Some She'll hate。
+
+Okay， so think of all those techniques as unlocking that realness。
+

@@ -1,0 +1,185 @@
+# 05、朱利安 《Ten game十戒》：2.任务：4.5任务5 4.5 Mission 5【加群主微信kc58567获取最新更新】
+
+Before I laid my eyes I laid my eyes on you off this is Julian and welcome to mission number five Now before we crack into this one here a few things first okay number one。
+
+ this is usually around the time that people start falling off in terms of going out and following the missions know if you scroll through the Facebook group。
+
+ there are a lot of mission one posts， there are a lot of mission two posts mission3 a little bit less and mission4 even less Okay so if this is you if you identify with this。
+
+ you're like oh yeah kind of。Kin of stagnated kind of gave up on the missions。
+
+ First thing you want to do is watch the accountability teleconference。
+
+ uploaded the replay here below。 so scroll down and watch that and do whatever you can to just jump back out there to get your ass out in the field and number two。
+
+ remember that these missions like they're not meant for you to achieve perfection。
+
+ they're just meant to give you a better sense of direction。 don't aim for perfection。
+
+ just focus on the direction so you're not just dabbling while out。 if you go out for example。
+
+ say seven days a week say you miss a day， it's not the end of the world。
+
+ I see a lot of posts where you know guys are just kind of beating themselves up this is not what the missions are designed to be this is not another reason for you to beat yourself up and disapprove of yourself。
+
+ it's just to give you some direction while out so remember number one。
+
+ it's like really value the fun above all else if the missions are killing that fun go back and let go the missions temporarily or don't aim for so much like perfection until you kind get that fun vibe back and then add the missions。
+
+On top of that okay because if you're going out and you're not having a blast， yeah。
+
+ you're doing your seven days a week。 you're doing the assignments。
+
+ but you're missing the whole point that is game okay so that's the first thing And the second is last week okay mission number4。
+
+ I asked you to post some screen caps of different text exchanges in terms of setting up a date and I thought we could crack into three of them here the first one this brings up some interesting points。
+
+ the first one starts like this so you got her number and you text her your name this is at 307 a at 339 she text you back a wink and then there's pretty much nothing till the next day if she text you back a wink at 339 unless you committed to another girl unless you went home with another girl unless you got to go home early that's a lead you want to be fucking calling like that's one of those numbers at the end of the night say hey where are you at。
+
+ let's hang out， let's go for after I was， let's go for fucking drinky what's going on versus。Oh。
+
+ I'll just let it slide。what I usually do is again I'll text in my name around halfway through the night I'll be texting where are you and yeah。
+
+ don't let the lead like that die Okay so the next day you still text her which is good you're like hellello are we still hanging out today Her answer is no I can't It's like hi I can't next question is hey so when are you free Now be careful with this one here like these open handeded like when are you free that'll rarely go somewhere you want to be decisive and precise with your text It's like hey。
+
+ let's do this at this time this day versus so when are you free know then you wait a bit then you text her like I hate you like immediately it's like I hate you it's like extremely reactive communicating and care way too much she's still engaged though her answer is。
+
+She's like， why winky face。Your answer as well because your hair is too dark you eat too little meat and you need eight days。
+
+16 hours and 29 minutes to respond to a message。 don't they seem you know like sufficient reasons。
+
+ Now again， the whole text thing like keeps on going。
+
+ it doesn't kill it but immediately that's like it's just like extremely try hard off the bat the fact you're counting the days and hours and minutes it's just such a big deal remember it's like the frame of mind when texting is like how would you text if you're in a middle of an orgy with 10 models Would you'd be like eight minutes like you wouldn't care to be like way more casual a girl it's not a big deal if you make it into a big deal it seems like one you lower value and number two it puts a lot of pressure on her to to kind of live up to the date because it's like so important for you So more casual also don't expect a girl to be free the first time you suggest hanging out know especially it's like you text her out one she was out till like 340 here so probably to like four or 5 ay we still hanging out she's probably tired to fuck at that time she answers hey。
+
+ I can't。So something to keep in mind， then you keep texting here。Some back and forth。
+
+ you text her some pictures， you text some videos back and forth， she's still engaged， which is good。
+
+ it's kind of showing your personality but。The you don't want to fall into like that frame where you're like now her little texting buddy。
+
+ you know it's like kind of going back and forth guys will do this where again you start texting and now you're friends over text but。
+
+You never hang out in person because you don't want to ruin that texting buddy vibe。
+
+ like what if it's awkward if we meet in person and it just doesn't really move it forward。So yeah。
+
+ you know， it's like you're still texting it' like。
+
+ hey what are you doing tomorrow night that's good？Hey， let's drink tomorrow， you know。
+
+ maybe try like。I'd say calling her first of all， like versus these little videos back and forth and。
+
+ you know， maybe try something else then， you know。
+
+ let's hang out or let's drink like have like a more precise plan。 like switch it up a bit。
+
+ don't just repeat it over and over。 You know， it's like hey， I'm doing this。 You should come。 Hey。
+
+ what about this。 or hey， I'm in the area。 Like， make it easy on her。
+
+ That's another one too It's like for the date， make it easy。 You have her logistics。
+
+ You know what area she lives in。 be like he， I'm in this place。 What are you doing。You know。
+
+ color now it's not like， oh， there's this big deal。
+
+ there's this huge date it's only just have to walk out and he's at a you know a bar nearby or doing something nearby so that's the first one。
+
+The second one， this is a short one， the first text is。
+
+Are you and your bike busy tonight so most likely call back to humor and the text。
+
+You know that's good it's like again， there's a purpose it's like， hey， are you busy tonight。
+
+ her answer， she's like，  haha， only me， I reached rehearsal till 11 pm。
+
+Your text immediately after that is hey， we'll come and have tea at my place after so it's like the first text like at 11 PMm it's like hey come and have tea at my place you know pretty much be a slut for me So again you're asking for so much compliance or putting around the spa make seem like a slut there's no way she's gonna to be like sure let's go for tea at 11 PMm at your place directly at your place So obviously there's no answer and then you text again oh sorry I have to withdraw the offer I'm too tired。
+
+ extremely reactive So again。Be aware like， you know how much compliance you're asking for it's like make it easy and don't make her feel like a fucking slut。
+
+ The third one and just the last one I kind of go through。
+
+You know it's like hey get home well we'll go for ice cream one time I promise that's the the text you know that's fine it's like you can text at at least has your name now and then you send her like some picture of you like singing at church and then talking about choir and with this one's just like。
+
+man， it's like these these ideas for dates like the date you suggest like， hey。
+
+ would you like to go swimming tomorrow afternoon at Lebao， it's like。You know， make it like it's。
+
+The date you really have to view the date。 First of all It like， is this moving it closer。
+
+ Is it playing to win or not like going to fucking swim atow it's like a cool。
+
+ but like is it really moving it towards sex。 now really， know， it's like the best date to location。
+
+ The best date location a little sign notes is like the shitty bar next to like the closest bar to your bed。
+
+ That's the best location and make it easy again It's like here you over hiding。
+
+ It this big deal's like， well， I'm gonna go with this guy just to go fucking swimming。
+
+ So I need to prepare my swimsuit。 I need to do this。 I need to go。
+
+ It's like you're just asking for a lot。 it turns the date into this big deal， It's like。
+
+ oh we need to go swimming now versus we're just hanging out。
+
+ I would keep here as a little bit more more casual。 know。
+
+ So this would be the opposite of say the first one whos just like too casual。
+
+ Like what are you doing tomorrow。 What are you doing for you。
+
+ kind of on the opposite side of the spectrum。 Okay so these are some lessons to get out of these。
+
+ I'd also recommend watching this video on phone game。 I'll put a link to it below here。
+
+ Now in terms of this mission。 mission number5。First thing okay。
+
+ we're gonna keep it at a more relaxed pace here， we're not jumping back to the seven days a week。
+
+ we'll probably do like a two week rest period last week and this week next week we're gonna jump back into seven days so for this week your mission is you have to go out twice okay only twice。
+
+ however， for one hour minimum and last week it was at night in a bar club this week it's during the day so twice this week one hour minimum during the day and the goal here okay is to get used to these longer interactions okay in order to really get consistent results well out you need to have those know 45 minutes to an hour and a half sets and if your interaction is just like five10 minutes and nothing's gonna happen。
+
+Now you can practice this while out， obviously in a bar club， but during the day。
+
+ you can kind of ease your way there。 know it's like there's probably going to be a lot of girls like sitting out。
+
+ know in fucking summertime like sitting out on at a little restaurants on a patio at a coffee shop And it's easy to kind of just sit down and start chatting or if you meet a girl walking who's not really doing anything just instant date her。
+
+ It's okay， let's go for fucking coffee And now you're sitting there And now you have a good like oh in 2030 minute chunk or longer ideally where you can spend time and get used to these build that endurance and set So your goal here is to focus on longer sets。
+
+Then of course， that'll translate while out to those 45 minute hour and a half in a bar club。
+
+ but the minimum here is try to get a 20 minute interaction minimum okay。
+
+ so it's go out twice for one hour each time minimum ideally longer and get one set that's at least 20 minutes。
+
+Reist leaving， resist ejecting like get that 20 minute set， build that endurance no matter what okay。
+
+ the other thing I want you to do is to post your biggest lesson slash epiphany from reading the way of the superioror man would really resonate with you what you got out of it and the last thing。
+
+And this to make it a little bit fun， I want you to do three。
+
+Qu unquote awkwardklash social pressure Starbucks or coffee shop opens okay where you're basically gonna go into a Starbucks or any coffee shop。
+
+ It doesn't matter。 It doesn't have to be Starbucks。
+
+ It's like kind of that scary situation all when it comes during the day if I open a girl in line everyone's gonna fucking here that's what I want you to do So you're gonna go into Starbucks those kind of hectic crazy situations and I want you to open a girl in line or girl seat it at a table。
+
+ loud so people can fucking here I want that social pressure。
+
+ when you get used it and your opener is excuse me did it hurt you wait for answer。
+
+ll probably like what everyone's what fuck what talking about and then you continue when you fell out of heaven or when you fell from heaven that's your open like the cheesies fucking pickup line excuse me it hurt when you fell from heaven and I want you to say loud enough everyones like what fuck I want people to kind laugh fuck this guy just open with the cheesiest line ideally you should laugh it and this get desensitize to these like。
+
+Or scary situations learn to have fun in them and to get used to that social pressure Okay。
+
+ so that's the mission two days this week， okay， an hour minimum each time during the day。Number two。
+
+ focus on a long set， you need a 20 minute set minimum， number three。
+
+ post your biggest lesson or epiphany from the way of the Super man and number four。
+
+ do three awkward Starbucks opens， good luck。

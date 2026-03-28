@@ -1,0 +1,253 @@
+# 05、朱利安 《Ten game十戒》：6.奖金：05.朱利安和泰勒 05. Julien & Tyler【加群主微信kc58567获取最新更新】
+
+This Owen and Julian， this is for a1 game， and we wanted to do a video today on finding your own style in game and really when you cross this sort of tipping point。
+
+In your game to where you're not almost as much like emulating others。
+
+ even though you're picking up a lot from others， but you're actually playing off your own strengths。
+
+ okay and if you want to basically understand this， I'm just getting comfy here。
+
+ what I'd like you to do。Is look up a guy who I really idolized named John Maxwell and he's a。
+
+Leadership teacher。And what John Maxwell says is that people have what's called a strength zone。
+
+And your strength zone is when you're playing to your greatest strengths and so you're not trying to be someone who you're not。
+
+ you're not doing things that you，Don't want to be doing。But you're actually in your zone， okay。
+
+ and this is sort of a confusing topic because。What happens in a lot of cases is that newer guys hear this before they've learned the principles of successive women and they're like I just want to be in my strength zone and I make my own style and it's like dude。
+
+ you don't even have a style like you just suck in every way possible and so there's a path to be on here but then as you continue down that and I'm sorry that was really di but okay justm sure you just what I'm saying now from there there's a path that you walk on but as you continue down that path。
+
+ what winds up happening is you develop you come into your own strengths and that's when your results will go through the roof okay and so you'll see this with every single RCN instructor like if you remember what we brought Max into the team right and at first people would say and this is what they'd say back Max is a code of Tyler and Juliat and they would say this constantly and I'm like。
+
+First of all， he should look like that because we're actually training him and of course he's gonna seem like us because we're training him in what we ran some guy and he doesn't look anything like us。
+
+ it means we didn't train him， we didn't do our job。
+
+ keep him around us to learn our culture for a long time so that's actually a good I did as a compliment that people are seeing that we kept him around let see if you look at Max back in the day in his earlier videos and say you look at him now you can see that when he first started off I personally actually never even saw that he look like near you but a lot of people would just sort of say it and now I don't think people are saying you know you look like。
+
+ know oh and Julia I think he made to some extent but you know we look like him right。
+
+She tried to grow man but when I'm ball to the back， but I would totally done it so basically。
+
+What you have is to where he hits into his strength so now there's a couple signs that I look for as an instructor and as an instructor of instructors to see when guys are hitting in the strength so so here's what it is okay first of all I will have it where I'll be up with an instructor doing public speaking and what I'll do is I'll do a mix of two different things One is I'll try to like prop them up and pull the best out of them and I'll do that at times and then other times I'll just power over them I'll just steamroll them and I do that intentionally to help them and the reason why is because at times I want to build their confidence to get them to where they。
+
+To where they saw they got some momentum and they can share a stage with me and they can feel comfortable but I also will steamroll them sometimes because I want them to feel the power in the force behind a veteran speaker and at that point what it actually does is it kind of knocks them a little bit but then they sort of see where they're missing it exposes gaps for them and shows that they're missing that's why sometimes they'll see me with instructors or jewel instructors we might talk more at of the time Do glasss I'm gonna be talking more in this video because this is a bonus video I're responsible for but say we meet and him do a video together right we do with other instructors you'll see different combinations of it so the reason why we're doing that is because you will see that instructors will hit a point where usually they'll go travel for a bit maybe they'll go do the European tour or something like that and I'll be watching this constantly and they come back and it'll go up on stageage them and I no longer have to placate them by giving them space I can go full on the gas and they're gonna match my level and they're gonna have the same groundedness expressiveness content delivery and flow as I do so I'm waiting。
+
+For them to hit that point once they hit that point。
+
+ I know they're ready to start doing their own products。
+
+ I know that we can start building we can conceal around them and build brands usually during that time they're getting laid like rock stars because you know this video is obviously about you getting laid night。
+
+Being a structure， you know what I'm saying， right。
+
+ but the exact same principles is apply so I want to use as an analogy。
+
+Right it's like it crazy right so basically what you're seeing there is guys come into your own strengths Now if you look at say Max。
+
+ he basically began to own who he is if you look at Julian。
+
+ he began to own who he is so I don't know if you wantna maybe even cut this in the video or maybe just refer to it here it doesn't even really matter but you can find a video of me in Washington DC where I introduce a concept making yourself vulnerable and that's a great video related to this and by the way it's where you can make yourself vulnerable so watch that video cut right gonna in okay and so that's Julian's first ever video or he spoke of me now you're gonna to see him there at the end of the video really shutting down but trying which is important part of this process and you actually see him。
+
+You'll see him talk for maybe like 10 seconds in it。
+
+ that's the best 10 seconds out of like 10 minutes。
+
+So this was interesting because at that time Julian was crushing a game and you'll even see like this was what's so funny about it right like I was nervous to put him in it because I was like he doesn't look like he's that sharp but then at the end of it he's making out with two different girls and dragging a girl home looking like a mother fucking boss so Julian's game was on point but he was still learning that in speaking so what you'll see there is that Julian at that point beside me he struggled to just you know to do what he did now over time Julian began to find some of his own lanes some of those were a little interesting can be a bit provocative at times and can provo media issues but。
+
+One of the reasons why？Juulian even had that lane was because he's like。
+
+ well one of the first things that in his mind he's like one of the first things that he's good at is creating drama with girls it's different than what I do I I'm not posting videos about making drama if anything I learned to do that a hit from him which was interesting and effective and dramatic definitely and dramatic but it makes Ill fall in with you our core dramatic It depends on where you're trying to go in life but no' deny the effectiveness and basically he did that because that's the start of his own lane okay so that was an area where Julian could specialize now what does that mean finding your own lane well I'll teaches a lot of the time even in Ho transformational experience I'll bring guys up to the front and what I do is I get them talking and what they're always trying to do is copy me they're always trying to copy me all the time and I'll watch him doing it and and because of this I know they're in reaction to me so I'll mess with them and they're constantly trying to react to what I look like okay you know ideal we' if and I'm doing my job。
+
+ you don't have a beard like this it's tripping you out you're thinking he's getting late。
+
+Cause he has a beard you're thinking like I wish my hair was thinner so that I could look more adult you know。
+
+ things like that like it starts to headfuck you right you ever look at maybe like a Danmel'serin video or something and you're like man I wish I had a tank I wish I had this I wish I had that it's because you're seeing a lane that's working and you're wishing that you're in that lane so we be back and like say LA for example teaching boot camps and a guy a boot camp will come on on he'll be like oh。
+
+You know is do I need to wear black in LA because the human mind is always trying to harmonize this environment and see what works and that's a good thing because it's not as though Julie and our eye are not harmonized in our environment。
+
+ it's not as though we have no idea what works but rather it's a process through which at first you see what's working you do that and then you maybe some results but then when your results blow up is when you find your own cell best example that I personally know Kanyye West Kanye West。
+
+It would initially copy Dr Drray， these are hip hop artists。
+
+ the producers actually of the Beas as well as as rappers。
+
+ but they're two of the top producers in hip hop history。So at first。
+
+ Connyye would sit there overlaying Dr。 Ds Beas， just learning how to do it。
+
+ learning how to speak like that， learning the cadence， or how to produce like that。
+
+ learning the cadence of the drum beats， things like that over time he went in completely different directions he made entire albums out of autotune。
+
+Bit of a weird experiment， but probably helped him to learn and grow he made he did all sorts of other weird things。
+
+ they're totally different from Dr。 Drray。 you can barely even see where they're similar and yet Dr。
+
+ Drray， who at that time was arguably the top producer Colye copyied that so I would learn from mentors like say mystery or Anthony Robbins and then look at their cadence I look at other speaking how they're communicating how they're coming across over time I then would go off in my own directions so maybe at first I learned know different methods from these guys then over time I go off in my own directions but I wasn't so arrogant as to think that I could skip that process of initially learning so I wasn't trying to make my own style right away I was just try to understand how the masters did it people can be very arrogant they don't want to be taught they're very。
+
+ very arrogant that they don't get great teachers I basically like I mean even when I learn how to write sales copy or do marketing。
+
+What I would do is I would sit there looking at long marketing pieces。
+
+And I would literally copy them and translate them into real social dynamics like I'm looking at like a top selling。
+
+ say a muscle tech commercial for a product called hydrodxy cut which sold millions of dollars and I would sit there for hours literally。
+
+Writing out the muscle tech commercial as if it was an RsD commercial so that I could learn how to market。
+
+ say I'm doing a product launch， I need to know how to market that product I don't want spend four years building a product like Blueprint and we don't even market it out to be an idiot so I made sure before I put that out to learn how the best people write sales copy now if I do a sales ad not only can I do it without looking at those ads although I may refer back to them which I think is smart but I can do it in my own voice and what used to take me a month to write a sales ad I could do it in a couple hours literally I could do sales of marketing。
+
+😡，Bm just off the cupuff， just I speaking here off the dome， so to speak。
+
+ but that took me a long time to get to that point and I got to that point not by being arrogant or studying on people。
+
+ but by actually copying what the greats and the masters were doing。
+
+ Julian is one of my main game teachers in my life and literally I would actually watch like even though it's weird because I taught him game。
+
+At first via videos like Blueprint Transs Foundations。
+
+ and then later by the time I met him he was further along a game that I've in many of his areas and then I would learn back off him and then he learned a lot of like work ramp and stuff off me。
+
+ we learned off each other and then basically what happened was I actually like so almost like I learned。
+
+Then he like I went to like here then he went to like here and then like I had a catch up so you know and I don't know more right now but it depends on who goes out more。
+
+ but he's usually strong as I've seen so basically what you have is like you're learning from great people but then you need to solidify your own style so take myself at milestone game right like what are some things that I did there for one thing I often tell girls like I'm a nerd I tell them this。
+
+I tell them I like to work a lot， I tell them that I like to read a lot。
+
+ I tell them I'm in meditation I tell them what's that tell them about your vitamins Oh yeah yeah we have all these like weird vitamins and sheil like now' tell them about that I do that because they start to get this kind of。
+
+Ped thing together of like this person who has his own kind of way of living life， things like that。
+
+ and I'm not sitting there saying it as resume， I'm just joking， I'm clowning this up is coming。
+
+ this up is peppered in。It really just not even ever intentionally brought up ever。
+
+But just kind of mention， you know， say I talk a little bit fast Well if I talk a little bit fast like right now I'm doing。
+
+ I could look like it could be interpreted in two ways。
+
+ one is I could look like I have a drug problem like'。
+
+that other is I could look like an idiot Savant who's extremely powerful Ed who's a leader which many people like Mark Zuckerberg or Elon Musk's classic examples are kind of idiot Sammons well it's one thing to look like you have a drug problem it's another thing to look like you're in the same playing field as Steve Jobs。
+
+ Mark Zuckerberg and so on and so forth right so you're giving a context for that I think those guys are light years ahead of almost any human on earth as far as the results but you see my point right so you give a context to it。
+
+Even things like not drinking。Right when suddenly they realize why I don't do it it's pretty cool now you also lose girls off that Sometimes you actually want to be more of a generalist so you don't set anybody off。
+
+ it depends sort of different directions that you can go here so realize that every truth is about a half truth。
+
+Realize that every side of the coin has another side of the coin So I'm talking here about one side of the coin could look at different size of the coin like just being fun and give me no specifics because they just get her home but there's elements to where you know I can lay back the girl in bed or wherever else and this stuff starts to come up they see as a congruent image and that congruent image fills in a painting canvas for them to which they understand me and then when they understand me they're willing to have sex Now we can also see this though as far as how I carry myself and groundedness So when you just kind of own who you are there's two sides to that The first side is that in some ways when you kind of just own who you are you're very grounded and it makes you come across more confident but sometimes the people that are the most grounded and the most edies who they are they improve the least So there's sort of a balance that you want to strike there betweenoded in your own style while still being coachable and teachable I was talking about Julian about this earlier。
+
+ many of my best friends who are credible like internet online gurus who you know maybe guys who you watch I've learned a ton from them but when I'm around them I just shut up and they talk at me and sometimes like it'll kind of be funny。
+
+Like you know one of them will be making a video and they clearly don't understand pickup and people will be like oh it and like I thought your friends's this guy why doesn't even know a pickup is surely he would have he would be listening to you when you're hanging out right and I'm like now they're brilliant and I love him and they're my friends but they're kind of uncoachable at least by me maybe they'd be coached by Nelson Men Dlay came back to life or something right but not by me and I don't really care I just want to learn so someone wants to talk I'll let him talk so basically。
+
+There's a combination between still being coachable。
+
+ still being somebody who's learning from great sources， I mean guys like Julie and myself。
+
+We can spend five figures， six figures a year on selfed right like these guys that are like I don't need to do a program and stuff I'm just like well I guess your results are gonna to be what they are you know Michael Jordan has 12 coaches you have zero you must shit must be amazing so it's like you want to be learning but at the same time there's that other side of you where you want to want to own VR so I don't for me in the past I might feel nervous to walk up to a woman and the fact that I'm anerd and I'm gonna try to look like some like we dealer or a club promoter like some hipster or something maybe I do look a hitster but okay。
+
+You might， I mean， again， that balance between。I live in Hollywood I kind of harmized the environment。
+
+ but then otherwise it's in my own style so basically at the time I might have felt like always in a reaction whereas now I feel like I'm the one triggering the reactions My deal world I'm at the club making out a bunch of different girls and people are going。
+
+He's severe and that'll happen to me a lot like I'll be at the club and people will be like。
+
+Like people will see me like with all these girls and like they can't figure out why because I'm not like traditionally good looking and then they just start rationalizing oh it must be the beard right this is kind of a big joke because I've been recording videos for about a year and a half and I haven't put any out this year or very little so the few I' put out people like he grew a beard oh this is bullshit and what's so funny is in a year from now everybody's gonna be saying it's the beard did it because people don't know what game is so they just see a result they're gonna to steal this and feel come up for me and only girls responding positively and they're gonna it's the beard but notice here again。
+
+You don't say you see that I tried to beard， maybe you want to try it。
+
+Maybe you tried it would suit you。 I learned it from other people I learned the beard beard game as I say beard like from other people but then I tried it didn't kind of work for me now my beard's very full and and thick。
+
+ so it works great for me for some people your beards weren't patchy maybe youre std maybe long beard here there as a joke so you know you've got to recognize where your strengths are in my case I'm not a traditionally good looking guy so because I'm not traditionally good looking if this is like the graph I'm on the edge of good looking I'm not in the center traditionally good looking I'm on the edge so I play at the edge if I was at the center I probably wouldn't do a big beard if I was at the center of good looks or traditionally good looking I would just wear abucro I'm a fish or like a basic suit and it would look great on me right that traditional salt looks great on traditionally good looking guys Now I'm not a traditionally good looking guy so I'm not gonna get a girl that wants you're Midwestern boy traditionally good looking guy who's clean cut because if I look clean cut I'm just gonna have my face shape I'm gonna have chubby cheeks bing Pay not that tall I'm not gonna to play well at that angle right。
+
+You know like a guy like St Louis How is an example。
+
+ more of a traditionally good looking guy If Lewis goes and grows his like giant beard and starts dressinging all fucking wild and fly and swearing and all you know I don't be a swears or not but。
+
+ you know what I mean like plays that angle those houses is a pretty cool internet or could him up that's not gonna work for him but I I mean it couldn't could work I'm sure he can make it work especially if that's really him but he doesn't need to do it like Lewis can play the center it is gonna crush so I mean again just my opinion he may have his own opinion he's not here give an opinion someone on there he's cool so basically in my case。
+
+ because I'm not at the center， I don't play the center and people can look at that and think that's a little weird but when you come out with me if I'm doing well if I have it to be crushing it that night。
+
+You're going to look in here you're going to start one doing what I'm doing just like what I go with him if I I like look Julian like。
+
+I almost make a choice and I go，" this guy， I'm going to like look at him and learn from him。
+
+I just fucking block him out like medusa because he's so fucking he's so pimping game that like I mean he is theimp like you know it Julian mother fucking blond my wing is fucking Julian Bla is kind of crazy so if I look at him too much I've been start getting in reaction to Julian and then I'm not gonna to be able to do my own shit because my game is predicated on like not talking that much in a lot of physicality that works for me because I have Ospergers and this is how you can see like I'm like I can just talk for hours just like like I don't know about Osper's not by the way but I probably just do so you know some people like I do do really。
+
+I mean。Take your best guess right but the point is like I have that like wave about me so I don't talk that much of my game because this is the way I'm talking right now is a bit too much for a girl and then I go silent and I do a lot of physical escalation and I do a lot of non-verbal because the thing that I want to talk about the girls don't want to talk about so that works amazing for me now he's verbal because he's really good at engaging with girls like in theirre femin in mind because I always say Julie like an H10 like super hot girl like a man's body。
+
+So basically Julia' is really good at engaging girls because he knows exactly how they think so he's playing to his strengths by doing that right I got like Jeff he's he's kind of like I don't know if you call it belligerent I mean he's kind of like Jeff goes intentionally belligerent and intelligent he's like bellig tellrant or tell so basically with Jeff he also plays you know in his strength like like Jeff is 5。
+
+7 but you never think of Jeff is 5。7 ever view you never think like that of Jeff at all so。
+
+You think of him as taller because he's he's playing to his strengths and he owns it as soon as Jeff。
+
+No longer owns its strengths and doesn't have his own swag and style。
+
+ you suddenly start calling him short， you suddenly start calling him bad looking you say his face looks like a bird。
+
+On the other hand， when he just does this thing you think of as good looking。
+
+ you don't of him as short right if I'm doing my best job。
+
+ guys will be like keep saying you're like a funny looking ginger in your videos but you actually look kind of cool like what the fuck up with that and if they see any pin in it they're gonna think that it's funny that it works right so basically the difference between like a bad looking guy or good looking guy is's not even as much as as looks it's just whether or not he owns it like take Luke Luke is like overweight right now。
+
+But he's like a giggling fat boy who wants a cake but you see him out there with like a super girlfriend doing gogies and shit who're like wow。
+
+ he's really gallan handsome me he has very noise hair you'll rationalize it So when when you come into your own strengths and you I't even think like you need to get fat too like if you her like shit maybe I should get fat like get that style it's true to be fair what happen to me and this is the problem with being active in game I now see lean guys and I think they can't get laid because they don't have a bit of manmbob and a belly and because they have too much hair like their hair's all thick it looks all weird know'm in my mind I'm chubby right now I think I'm the silverback gorilla with like in my mind my balding is like a silverback gorilla and my chubing his shows that I'm powerful instead of some like young guy who's just like in the gym all day because he has no power this is delusional it's not even healthy I'm just stop but you got to understand that my Playboy playmate girlfriend sucks on my tiies and it' like I just love them and sucks I'm like I don't even like。
+
+Because it's not really the kind of attention I like， but like you know。
+
+ I say I'm going to get lean and she doesn't even want me to get lean because she's attracted and she doesn't know what she wants so。
+
+Like I was saying on one level it's going to keep improving like I want to get into fitness here again like I've been for many years。
+
+ but on another level when you own it it also produces great results。
+
+ recognize that you want to be coachable， you want to produce great results。
+
+ but at the same time you also。Want to like want to owe who you are and be comfortable with yourself and be comfortable in your own skin once you do that again。
+
+ that's where you just go from being able to open certain groups or open certain sets to closing a lot where you get that girl back home when you're chatting she and she can see the complete group picture of who you are you're owning that persona。
+
+That who you are and you're playing to your strengths again， like I said， look up John Maxwell。
+
+And also and look up what's called your strength zone， I think it'll be very eye opening。
+
+ remember the Kaonye West example， it's okay to start off by imprinting what other people are doing to get the rhythm and flow of it and don't have an ego about that guys have an ego about that or nuts to laying the results and then over time。
+
+ keep incorporating more and more of who you are。And as you do that。
+
+ that's when your results you're going to go skyrocket， Okay。
+
+ so I hope that what I'm saying made a lot of sense here Julian just came and asked me to。
+
+Comovering off some phones content here and it's a pleasure to do it I want to thank Julian for having me on here and is there anything you want to add to it or yeah the good here the couple last points to be yeah be willing to try like a bunch of different fuckings。
+
+ even things where you don't know if it's like if this is you。
+
+ it's like try it and at some point something will just click you're like oh shit。
+
+You know it's like that's the one so it's like I did this in game where I just tried a bunch of different things。
+
+ kind of found my style， I did it in the dating video it was like if you go like an RC join channel like the first。
+
+I'd say510 are just kind of like general topics until like the drama went hit and I'm like oh boom all out there Thats to me the truth about success by the way I didn't want to put out the truth about success videos I almost deleted it and then I was like。
+
+ well I guess if people don't like it I could just take it down and then boom yeah。So yeah。
+
+ you never knows it's like try a bunch and then the videos I thought would be awesome no one even figured response and also all my biggest videos on weekends that I would shoot I would shoot two videos those weekends and I don't think one video was the awesome video and then the other one was like the okay video and those ones blew up in fact funny enough great example right now we're sitting outside Seawins Steakhouse in the in Vegas and here's what's so funny the biggest video on the RC Ter channeln was a video that I shot in Vegas and there shots from the Seawins Stehouse in in that video and funny enough like that was the weekend when that happen like literally like I thought this one video was so amazing then was okay and then what was okay blew up and then one I thought was awesome was just like maybe got 100k views got 600k almost now so and that was through testing different stuff got a test you don't know what people will respond to and as you see the response you get excited about it and it actually is something you're good at and then and you don't know even like what you respond to it's like you'll do you're like like for the first it's like rediscovering yourself in a way too。
+
+And yeah it's like challenge yourself like one thing I noticed this too is with the travel like I'd be gone a couple months or a few months and then every time we'd meet again because we're away for a while like our game would develop different styles and then like we'd meet and every time we'd be like a two week or I'm like what am I doing the right thing like kind of I what you do so we'd be like like crumble than build up stronger crumble so like there's those phases you kind of have to go through as well Co so right to the CD and master the CD writing to the CD is try new things then mastering it is where you own it？
+
+Oh。
