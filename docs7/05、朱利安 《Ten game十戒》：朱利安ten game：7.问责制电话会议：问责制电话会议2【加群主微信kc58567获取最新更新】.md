@@ -1,0 +1,897 @@
+# 05、朱利安 《Ten game十戒》：朱利安ten game：7.问责制电话会议：问责制电话会议2【加群主微信kc58567获取最新更新】
+
+Acting as if you haven't hooked once you've hooked。 Okay， and I just see this left and right。
+
+ and it's crazy。 It really got me thinking， like。You know。
+
+ we put in so much effort starting out to go from to beat level one， let's just say level one。
+
+ okay to beat level one， you don't know what the fuck game is， you're looking up all this content。
+
+ you're watching all these videos。You're you know you're getting the programs you're watching the infield and you're like okay I must do this。
+
+ say this， this is the vibe， these are the details when this happens I do this。
+
+ I better be aware of that， manage my state so on and so forth and you start caring about a lot of things and taking a lot of things seriously and really putting in a lot of efforts okay and this is you know if you're completely new how you master level one。
+
+You know， it's no matter who you are， it's like if you don't know the language of the game。
+
+ if you don't know all these little details， if you don't even know what game is。
+
+You're not going to be able to play Okay， so level one is caring about all the little details。
+
+ Leve one is putting in a lot of efforts， you're trying to， you know just reach that hook point。
+
+ you're trying to get that girl to fucking like you。Now， once you master level one。
+
+ and this is the important thing to understand， whatever you use to master level one。
+
+ you can't use to master level two。Okay and this is big if you're putting in a lot of effort。
+
+You know， you're going in， you're caring about all these little details。
+
+ it'll get you you know one step closer， but it won't get you all the way。
+
+And you have to drop it once you pass level1 and this is what I see with a lot of intermediates and a lot of clients okay and for example let just say hooking to reach that point where they start actually hooking the girl。
+
+ they've been putting in a lot of efforts and they've been you practicing。
+
+ expressing themselves practicing like just going really fucking strong and they've hooked， you know。
+
+ funny enough they've hooked， they've reached level one。
+
+ but they keep on playing the same game that they've been playing to reach that hook point which doesn't work after the hook point。
+
+OkayAnd I see this left and right like trying way too hard and all these rejections and their mind they think they're not actually hooking。
+
+ but all these rejections are they're actings if they haven't hooked once they hooked okay they're using the tools of level1 in level2 and what you have to realize here is that most likely if you're going out and you're having these interactions that are longer than you know let's just say fucking 30 seconds you're already at level2 and you better start acting accordingly or you're going to get rejected all the fucking time okay and it also comes down to redefining the hook point I believe we talked about this in the previous accountability call where the hook point is not。
+
+This crazy moment where the girl's like on her knees trying to suck your dick and you know the venue you guys met in the hook point is you know she cares that's the sexual hook point。
+
+ It's like you'll see bambi eyes and now don't obsess over this。
+
+ It's like what are the bambi eyes okay it's like。You know。
+
+ people like is it the pupil like what if she's wearing contact lenses。
+
+ can you still see the bambi eyes don't overthink it just think does she care okay。
+
+ which you feel something if you left it goes from ahata hey， that's Bambi eyes hey， it's up。It's。
+
+ oh， that's interesting， what？Okay， and 60 to 70 to even 80% of the time。
+
+ this fucking hook point you're so obsessed about happens within the first second or two。
+
+ most likely， a good， again， 60， 70% of the time you're even hooking like the girls you talk to in a night out。
+
+ you're already hooking them。Okay，You're a lot farther along down the journey that is game than you think and again。
+
+ you got to start acting accordingly to that okay and this means slowing at the fuck down and assuming you're already there。
+
+And if I could just teach that， like slow it down。Do less even again。
+
+ the tools to get to level one are different than to get to level two。
+
+ your results would just explode， stop doing you so much， stop caring so much， relax， you're there。
+
+ you've already hooked why you're acting as if you haven't' it's this whole journey of realizing you are there。
+
+Okay， and then of course， learning how to be there。Okay。
+
+ and this also means stop obsessing about all the little details。 Okay， the guys who are there。
+
+ the guys who advance， they don't think about as many details as you do。 me personally。
+
+ especially when I'm out， I don't think about all the little details you are currently thinking about。
+
+ Okay， now I will think about them after the fact。 I will talk about them in different videos to hammer certain concepts home。
+
+ But I'm not just thinking nonstop like bambi eyes， the variation of the bambi eyes。 fuck no， okay。
+
+ to get to level 1， you have to care about the details to get to level 2。
+
+ you got to stop giving a fuck about all those little details。 Okay， it's about removing， not adding。
+
+ okay， and with viing。It also means that。You know， you need to start focusing on the more。
+
+How to say depth side of game。 Okay， it's not a surface level。 level1 is surface level。
+
+ You're going up。 you're having all your references。 You're learning the little subtle nuances。
+
+ You know you're talking to a lot of people， you're barreling through approach anxiety so on and so forth。
+
+ And once you reach level 2 where you're hooking a lot of these sets。 One， it's slowing down。
+
+ it's realizing you've hooked。 And then， of course， you know， it's easy to panic because I like。
+
+ well now what， know， once you're at level 2， you cant be thinking next step up until the hook point。
+
+ it's convey this， convey that， convey this。 Once you've hooked it's now you got to spend fucking 40 minutes hour and a half vibing。
+
+ And there is no next logical step。 I mean， of course。
+
+ there's logistics solely moving things forward。 But now it's just vibing for the sake of vibing。
+
+ It's a different type of game。 And to learn how to vibe， you got to focus on the depth。 Okay。
+
+ means actually you know， getting to know this person actually connected on a deeper level。
+
+ then just pick up， Pick up， Pick up， Pick。 the way I personally youve this is。In all honesty。
+
+ what makes game attractive to me like this is what keeps me in the game， I mean。
+
+ apart from say self expression， it's， you know， you're there vibing with a fucking girl。You know。
+
+ you know， if you've been on a date before you've probably experienced this where you know say you've spent two hours just chilling with a girl。
+
+ maybe having a couple of drinks and just talking and let's just say you've already fucked her。
+
+ you've already fucked her， you're on the date， you're just chilling it's fun。 you know。
+
+ it's relaxing， It's fun。 you're sharing who you are。
+
+ feminine energy like that's what a lot of pickup becomes once you realize you're in level2 and how you know once you learn how to play level2 it's you're going out。
+
+ it's no longer you talk to her girl and then it's like oh I'm already in the viing you know how do you act。
+
+ if you talk to that girl， you're already fucked her。
+
+ you got that out of the way and you're now just chilling getting to know each other experiencing each other fucking around at that feminine energy。
+
+ she's experiencing that masculine energy， that's your night's out， you know and again。
+
+ once you kind of enter that dimension which just say it's extremely relaxing。
+
+ It's extremely fun and you finally kind of tap into the deeper side of game。
+
+ you know the deeper side of human connection。And it's past， thinking of all the little techniques。
+
+ past thinking of all the little details， it's letting go of that。
+
+Level 2 is completely letting go over that and yeah， just vibing。 it's like that is game Okay。
+
+ and it also means， you know， like snapping out of this computer game piece by piece frame。 Okay。
+
+ it's like a lot of guys kind of operate from in this paradigm where they're like next step。
+
+ next step， next step， let go of that。Okay， we're still in the real world don't devalue just vibing for the sake of vibing okay。
+
+ another thing I notice here is。You know， a lot of clients don't。
+
+Ebody and buy into themselves like they don't embody the number one guy and they don't buy into themselves at all。
+
+ Okay， so what does this mean， You know， if you want to be。
+
+Literally like if you want to kind of reach this state of like hey。
+
+ I can relax and actually get the girl， you have to be the number one guy。
+
+ you have to believe you down inside that you're the number one guy。
+
+ you are the best option in the world for this girl Okay me right now if you ask me straight up are you the best option for any girl in the world。
+
+Yes， the answer is yes， you could attach me right now to a fucking lie detector。 No hesitation。 like。
+
+ are you the best option， like better than anyone， any fucking millionaire， celebrity。
+
+ anyone in the world， Are you the best option for every single girl in the world， Yep， straight up。
+
+ yep。And I do believe it，100%。Okay for you， okay to kind of graduate。
+
+ we can even call this level three to kind of graduate， you need to start believing that too。
+
+ with full conviction that you are the best option for every fucking girl。
+
+ that you are the number one guy。Okay，On one hand， girls， okay， we'll go for nothing less。 Okay。
+
+ most of the time where the girls you want。 like they want the number one guy。 Every girl goes out。
+
+ hoping to meet the number one guy。 That's the only reason a girl goes out。You know。
+
+ if you take a couple seconds to think about it， No girl goes out to meet more friends。
+
+ No girl goes out to meet more nice， polite people。
+
+ Every fucking girl goes out to meet that number one guy。 And every time a guy approaches her。
+
+ she's hoping deep down inside， she's on your side。 She's like， please be the numberborn guy。
+
+ Are you gonna to be that number one guy。 no。Okay，They're all looking for it。
+
+ and you know unless you it， you're not going to get them and unless you embody it too。
+
+You're always going to feel like， you know， deep down。
+
+ like you're going want her to go for someone else like you're not going to want her for you because you're going to feel guilty because you're kind of fucking over from missing out on a better option。
+
+ You know， if you're not number one and there's that means there's another number one。
+
+ you would want her to go for for him。You know， you wouldn't want her to go for number two。
+
+ you'd hope the best for her。You know， so that's going to prevent you big time from， you know。
+
+ getting the results you want。 So you got to start embodying that。 Okay。
+
+ you got to be your own hero that also means stop， you know。
+
+Coming from the frame where you're you're placing other people in a pedestal。
+
+ like even in terms of pickup， you know， you might hear there's a certain context where I'm the teacher。
+
+ you know， you're following my advice， but you kind of reach that point where。If you really want to。
+
+ you know， grow and again， this is level3， there's you need different things wherever you're at。
+
+ but at level 3， you got to move past that。 you got to stop viewing me as even being like the teacher above you。
+
+You know， that doesn't mean don't be inspired by other people， of course。
+
+ be inspired by other people， but start buying into yourself。Be inspired。
+
+ Don't think you're beneath anyone else。And you got to graduate to that level if you want the results you want。
+
+ you know， this is like day three of every fucking boot camp I'm telling guys like you better assume you're number one。
+
+ you better know you're number one I don't want this to be like instructor student relationship anymore it's like right now youve passed me。
+
+ youve surpass me you know if there's a girl and say I'm talking to her I want you to come up and be like hey。
+
+You know， like， cut over me。Of course， there's a balance， like if you want to listen to me， talk。
+
+ that's cool， but cut over me， go for it， you're the best option， why wouldn't you， Okay。
+
+ you letting her go for anyone else。Is fucking her over because you're literally the best option。
+
+Okay， so you kind of have to buy into that frame here and by best option， by the way， the way。
+
+ I mean， my metrics for like calculating this are just awesome vibe， okay， or your uniqueness。
+
+As soon as you understand that， okay， law one。You know， you can start cultivating it。
+
+ don't base it on money or anything like that。 Okay， your uniqueness， you know。
+
+ it's like who are you， some questions asked， who are you。You know， you can't even go superficial。
+
+ like just some stuff like， what are you proud of。A question every fucking guy should ask themselves like right now。
+
+ if I like， I'm asking you， what are you proud of。If you don't know， if you're like， I don't know。
+
+You know， it's like how the fuck you want to buy into， to you。
+
+ How can you believe you're the number one guy， How can you believe you're the hero if there's literally nothing you're fucking proud of。
+
+What are you excited about right now。You know what drives you， What are you passionate about。
+
+ What turns you on。Do you know if it's nothing， then again。
+
+ how do you want the girl to be excited about spending time with you being with you？Okay。
+
+ that stuff you just gotta start fixing。 You know， it's in your day to day life。 It's like。
+
+ what are you proud of And look where the bar doesn't have to be this crazy thing Like， oh， you know。
+
+ I've。I went to space type of thing。 doesn't have to be all that。 It's like， what are you proud of。
+
+ You should know like no hesitation this。 What are you excited about this。Okay。
+
+ it should be just fast and again， there should be that conviction behind it Okay， take some。
+
+ you know， learn to be a little bit more selfaware as well if you're going through， for example。
+
+ the Facebook group， okay，10 game Facebook group， which is fucking amazing。
+
+ but take some perspective and look at your comments， look at your posts。
+
+And view them from someone else's perspective， you know。
+
+ say you didn't know you and you were reading your own comments and posts。
+
+ what would you assume about that person， you know。
+
+ would you assume that that person is a cool person， you assume that person is number one or not。
+
+You know， and right now you can immediately catch yourself if you're posting like whiny comments if you're posting negative comments if you're posting dumb questions or just like。
+
+ you know， worthless trolling and shit， not saying that there is that， but you know。
+
+ say you are from an outsider perspective again。What are you reinforcing You're that type of guy。
+
+ So take perspective objectively view what the fuck you're doing and start changing the habits。 Okay。
+
+ start embodying being number one。 start embodying being the guy who's again。
+
+ it's like you're the cool offering value type of guy。 you're not the number two。
+
+ you're not number three。 you're not in the background。
+
+ Stop trying to get the pity fuck you know that that was me when I before game。You know。
+
+ I was never the number one guy in my very small group of friends。 And I remember I was thinking。
+
+ like my only option to really get a girl would be to， you know， get a friend who's like。Cool。
+
+ so he'd get the hot girl and I could maybe get her friend because I'm just like the number two。
+
+ you know， it's like the pity light。 It's like fuck the pity light。
+
+ You want the girl be the number one， okay。嗯。And this is inset out of head。
+
+ this is not just while out， you know， 24， fucking seven， embody that guy。
+
+ start buying into yourself， start getting excited about who you are and start cultivating more and more of that awesomeness。
+
+The other thing here too is it sounds pretty bad， I call the me first mentality where it's prioritized how you feel above all else。
+
+ you know while out， it's stop compromising what's going on inside。
+
+ be sure to be doing those checkups。All throughout the night or day， it's like， okay。
+
+ how am I feeling me first， how am I feeling， how am I feeling， Because if you're not feeling good。
+
+ she's not gonna to feel good。 Okay， stop compromising it too， you know。
+
+ this is like a firm boundary。 you just got to put。 it's like。
+
+ no matter what I'm prioritizing how I feel。 I'm mean feel fucking good。
+
+ people pleasing if that's compromising。You know， me feeling good。 I'm just gonna cut it off。
+
+ That means no more people pleasing。 It means no more holding back your intentions。
+
+ It means no more being fake。 Okay， prioritize， feeling good， feeling congruent。
+
+ having integrity above all else。 Okay， this means sometimes too， if you're。
+
+In a situation where as long as it's not an excuse。
+
+ but say it's a situation you you're just not happy， it doesn't make you feel good。
+
+ maybe it's not a person that again you have chemistry with you just don't want to talk to her。
+
+ get the fuck out of there。 stop compromising how you feel this is something that I mean。
+
+ I play a game but also just in life you know if there's something that say is requiring me to do。
+
+ but I just it just doesn't go against my values I'm just like nope。Like straight up，pe。Okay。
+
+ me first prioritize that if I'm in a situation where it's just like I don't feel comfortable。
+
+ Like even hypothetically right now， if you threw me up on stage， like， say。
+
+ I'm doing an event and it's even an event that like generates cash。
+
+ If there's anything about the event that I feel like is's off for the compromise is like my values my integrity。
+
+ I I'll bounce the fuck out。 It's like I prioritize that shit above all else。 Okay， don't sell out。
+
+ be it for money for approval for anything。 don't sell out me first mentality。
+
+And then the other point here is's thinking about。 And this is something。
+
+I was reading Stephen Covey's cover right here， the seven habits of highly effective people。
+
+ I'm probably going to do it for the book club on my Jo himself channelnel in two， three weeks。
+
+he was talking about win， win。And rereading it。I loved this one explanation where he talks about the contradiction or paradox between staying true to yourself。
+
+ you know me first mentality， having integrity， being congruent， being authentic， so on and so forth。
+
+ while at the same time being empathetic， being aware of what other people are feeling。
+
+ being respectful， so for example， say you know at any point in time you。
+
+You feel let's just say you feel like swearing or saying something extremely inappropriate。 Here's。
+
+ you know， the paradox it's like， okay， I want to say something very inappropriate。
+
+ but let's just say there's a little kid around。 Are you gonna swear in front of the little kid because on your end it's like。
+
+ okay， well， if I'm swearing if I don't swear I'm not being authentic， I'm holding back。
+
+ I'm not being congruent， but at the same time， what about the fucking little kid。
+
+You know so it's like it's what we talk abouts likech express who you are and then find the win win and what he talks about is he calls it basically maturity it's like the more mature you become the more you can balance the two and that's really the definition of win win you know you can go the route of saying fuck it you know fuck being aware of people around me I'm just going to do whatever I want whenever I feel like it being 100% congruent and what you're creating there is a win lose where you're winning and everyone else is losing。
+
+Now， most people go the other route where they' like， okay。
+
+ I'm gonna be very empathetic and know very considerate of everyone around。
+
+ and they compromise that authenticity。 They compromise how they feel they compromise themselves。
+
+ they compromise their self-esteem And what you create there is they lose。
+
+ win where you're losing and everyone else is winning and maturity and this is the skill of， again。
+
+ learning， win， win is to create that nice balance where you're authentic enough But at the same time。
+
+ also consider it where it's win for you win for everyone around know And in terms of being congruent your。
+
+Intentionions， you should want people around you to have a good time as well。
+
+ So it will be authentic to be considerate and empathetic Okay and when it comes to game。
+
+ you better learn to be empathetic so much of it is just empathy。
+
+ like learning how to get a feel for other people， learning to where they're at emotionally mentally because again without that you can't have any type of interaction so these are just a few ideas again been to my mind lately I've been noticing a lot know in clients who have seen 10 games who have been going out and applying it So put these to use okay can。
+
+Pretty much guarantee you've probably identified with one or two of these points and let's kind of crack into the Q&A here okay any questions you have I love the word small group。
+
+ so let's keep these personal any questions you have。
+
+ anything you want me to talk about be it in terms of you going out take action being accountable in terms of sticking points you have right now if you want me to talk about know one of these points that I've kind of like hammered on here。
+
+ go more in depth， let me know any question you have game beyond the game。Literally。
+
+ whatever you want， post it in the little chat box here， and let's get fucking started。
+
+ My current singing points， not having enough consistent results。 I can pull a perfect 10。
+
+ Some other times nothing。 my results are inconsistent。 What I'll ask you here is。
+
+ are your results inconsistent in terms of you getting the girl or in terms of how you feel while going out。
+
+because inconsistency in terms of how you feel that you can fix okay， when I go out。
+
+ I never have a bad night ever， however， results in terms of getting the girl at the end of the night。
+
+ that is not entirely in your control and you're always going to have inconsistent results when I go out。
+
+ I don't pull every single time I go out。You know。I don't fuck every girl I talk to。 even at the end。
+
+ every girl I pull， I don't necessarily how you fuck em。😡，Okay， why。
+
+ Ca that sounds higher than your control。 You know。
+
+ this baffles guys actually had a guy on boot camp on this past weekend。 He pulls a girl back。
+
+They're making oun shit in her bedroom。 And then she's like， no。And he's like， well。
+
+ what did I do wrong， And we went over， you know， the details of it。 And I'm like， dude。
+
+ you didn't do anything wrong。 Like， you did everything right。 But guess what。
+
+ She just didn't want to fuck。 You know， there are some girls， no matter what。
+
+They just don't want to have， for example， a one night stand。
+
+You and we just beat ourselves up we' like， what did I do wrong， It's like dude， She doesn't want to。
+
+ you know， who knows why？It could just be like by principal upbringing， like there are some girls。
+
+ literally， no matter what you do。No one night stand。Sometimes not't even sex on a day， too。You know。
+
+ so in terms of results that way， if they're always going to be inconsistent， why。
+
+ why are you beating yourself up for that， Focus on what you can control。
+
+ You beat yourself up if it rains。 fact， Julian， some days it's raining。 I don't understand。
+
+ You can't control the rain。 You can control how you feel， though。
+
+Are you always having an awesome time out， yeah。You know。Inconsistent in results。
+
+ that's to be expected。You know， it'll be a lot better than before。
+
+ like it should go up versus youre not finding out about the game。
+
+ but you're never going to reach that point where it's like any girl any day， any。
+
+It's like every single night， I better fuck a gr I now， dude。You know， on top of that too。
+
+ it's like one night stand somehow has become the norm in the community。
+
+ but realize that a one night stand is like the slam dunk at a fucking NBA game。You know。
+
+ a lot of your results are going to also come from like day twos。You know。
+
+ if you're just trying for like the one night stand， like， it really got glorified due to。I mean。
+
+ a lot of travel with say your teaching pickup and you're traveling around。A lot of the times。
+
+ I just have one night to fuck the girl， you know， so there is a lot to talk about one night's stand。
+
+ But if you're living somewhere， it's like， what's bad about a day2， people devalue that， Like。
+
+ I know guys throwing away numbers because they're like， fuck， it's a day too。
+
+ It's not as I don't get as many points for it。 Like， no， stop view it from a validation standpoint。
+
+ whether you fuck the girl on a one night stand or a day too。 You don't lose anything。
+
+ It doesn't devalue what you built。 It doesn't devalue where It could go。You know。
+
+ like literally guys were like oh I fucked her， but it was a day two so late， it's like no， man。
+
+ like don't devalue the day two and be realistic。I sometimes feel bad about merging if I'm talking with an unattractive girl。
+
+ I feel like it's a slap in the face to her。 I know this mindset is wrong。
+
+ But where does his blockage come from since I have good intentions。
+
+If okay so a couple things here okay if you feel bad about merging。
+
+ meaning you're talking to a girl you don't find attractive and then you merge with another girl a few different frames here you got to change number one。
+
+ okay realize that girls are not like you what does that mean as a guy when you approach a girl you know your identities on the line you've been reading a lot about pickup。
+
+ you're breaking out of your shell， it's this huge deal。
+
+ you know it's like you like you're putting yourself out there， it's important？
+
+And if you get rejected， especially in the beginning， you're just heartbroken。
+
+You a guy in pickup you know， frame of mind。For a girl。She's not thinking like that。
+
+ It's not as big of a deal for her as it is for you。 She's not， you know。
+
+ she's not been reading like hours or weeks or years of like fucking content。 she's just， you know。
+
+ showing up and she's probably thinking， you know， it's all fun if you leave she's not gonna be thinking about it writing a detailed report after okay。
+
+ she doesn't give it fuck。 So it's not that big of a deal。 don't project yourself on that girl。
+
+And in terms of like merging， okay， it's like if she does happen to be sad because it can sometimes happen if she does happen to be sad。
+
+You didn't manage expectations。 O， meaning that you LED her on。 You were fake in a way。
+
+ because if it's a girl you're not attracted to， you shouldn't lead her on。Okay。
+
+ you can still be flirtatious， but it's the difference between flirting the flirt versus flirting the fuck。
+
+ Every girl you're not attracted to has to be clear in the vibe。 You're not going to fuck her。Okay。
+
+ and beyond that， too， in terms of good intentions， don't view merging sets as like， oh， you know。
+
+ fuck you， it's like we're adding more people to the fun。We're inviting more people to the party。
+
+And if you've managed expectations， too， she'll be happy because， you know。
+
+ you're adding more people。 People love to meet each other。
+
+ That's why merg sets also work so fucking well。 And she'll be happy for you because she's like。
+
+ fuck， this guy provided value to me。 We've been having a blast。
+
+ It's been clear he's not gonna fuck me。 And here he is going for the girl who he is gonna fuck。
+
+ I wish him well。 I sometimes get a mogged by other guys who just linger。
+
+Forever trying to pick up the girl that I'm picking up any advice on that Yeah， I mean， first of all。
+
+For that question， YouTube， okay， video， go on YouTube search。
+
+ RSC Julian mixed sets and watch the video there。 But the gist of it is if you're picking up a girl and you know guys are coming in trying to ammog you or steal your girl。
+
+ there's a few things you know that you're probably doing wrong。 One is that。
+
+You're not letting her chase at all。So again， it's like if an interaction is on like very much on。
+
+ no guy should ever， ever come in and interrupt and try to steal your girl。Okay。
+
+ it's only when your game is off， it's when you're either friend to friend。
+
+ like just very kind of like weak friend to friend holding your intentions back and the girl's talking you like tolerating you what does that communicate to every other guy there It's like well。
+
+ this dude is way laer than I am she's tolerating him if she's tolerating him， she'll probably to me。
+
+So it's like an easy go。 It's like low hanging fruit。's like， let's just get this fucker out。
+
+ you know， out of there and get this girl。 So either your your friend to friend。
+
+ either you come off is very weak， you know， very like not grounded at all。 It's like， hey。
+
+ what's up like that to the girl。 Of course， some dude will see that And just be like。Jump in。
+
+So there's that or you're chasing too much。 And it's like the guy who's like overgaming so someone sees that like this guy just met her he's trying to pick her up。
+
+ look at how Trahardi's trying， let me kind of wait or let me whiten it。
+
+ But if you're on point and it's you being grounded going up offering value again gaming yourself。
+
+ transferring down on her and then she starts chasing from an outsider's perspective it's like it either seems like you're a fucking couple it's like oh again that whole you're already in phase two。
+
+ it's like she's chasing， you're both talking back and forth vibing there's depth they'll assume you're a couple or it's just so on that no guy would interrupt。
+
+You know， if a guy's jumping in， it's because you fucked up prior to that in the vibe。
+
+And if a guy does happen to jump in。Remember that it's a game of who's reacting more to who Okay。
+
+ in which case， rewatch in 10 game the Tyler versus Julian infield compilation。
+
+ The last time I wasn't in state， I tried to make myself feel good， but it didn't feel congruent。
+
+ How's the out of state game。Okay， with that， it's like you can't force。
+
+If you're out of state and you're not feeling good。 It's not about competentating。 Like。
+
+ I feel good and telling yourself you feel good。 It's about embracing it。 Okay。
+
+ it's about embracing out of state game。 And， you know， the best way is really laughing at yourself。
+
+ you know， if you're out of state take some like zoom out a bit and look at yourself from an outside's perspective。
+
+ say you are watching， you know， you out sucking。 you know， you should learn to find that funny。
+
+ you know， like a lot of out of state too， by the way。
+
+ is guys taking themselves way too fucking seriously。 Again， it's that you've reached level1。
+
+ you're now in level2 and you're obsessing about the game so much taking it so fucking seriously。
+
+ we have to realize is the guys who are advanced， they don't give a fuck。 you know。
+
+ they care way less than you do， you know， like in terms of like these rules of the game。
+
+ I give way less of a fuck than any student I've ever had。It's pretty crazy。 Like。
+
+ they would think I care so much。 And that's like， I've mastered every little fucking detail。
+
+ I just don't give a fuck about the details。 That's， that's literally what I do。 You know。
+
+ when you're out obsessing， even thoughts about like， state。I mean， of course。
+
+ you go through that phase where you got to learn how to stamp out of it and we'll talk about it a bit here。
+
+ but I don't even think about state or how I feel it's like I don't care like， well I feel out of it。
+
+ who gives a fuck， you feel and say who gives a fuck。You know， stop giving a fuck。So， yeah， I mean。
+
+Remember that like all those little questions you have I don't have。It's not about mastering。
+
+ And it's about。Removing those bullshit little thoughts questions。
+
+ removing that obsession with the details。 and again。
+
+ the way to make it congruent is laugh at yourself。Whatever you're doing。
+
+ if you're laughing at yourself， is congruent， laugh at how pathetic you look， being out to state。
+
+ laugh at how pathetic and ridiculous you are， just there in the club， thinking about game so much。
+
+ beating yourself up so much， stressing out so much。
+
+ having a facial expression like you're about to take a shit or something like， I'm not a state。
+
+ do like， take some perspective and realize how fucking ridiculous that shit is and laugh at yourself。
+
+ That's the way out of it。Like， find it so fucking funny that you move through it。 now you're happy。
+
+ Now you're laughing。 and it's genuine laughter。 It's not forcing yourself to laugh。 It's like。
+
+ take perspective and just fucking like just realize like the absurdity of it all。 You know。
+
+ if I could just show a mirror to every guy out of state。
+
+ like how absurd that guy looks and how absurd his thoughts are and his thinking process he would just laugh and he'd be in state。
+
+Okay， carry a mirror with you next time you're how to stay， look at yourself in the mirror。
+
+ take your phone， do take a selfie video。 How often you practice those seven interactive exercises。
+
+ at this point， I don't do them daily。 Maybe every once in a while， But for a period of time。
+
+ I would do them every single day。Yeah， I mean， at this point of just。
+
+To design my life to the point where I'm just。Interacting all the fucking time。
+
+So I don't really practice those that much。 I practice。Different skills for for business and stuff。
+
+ But for a period of time， I did those seven exercises daily。 Owen did them daily as well。
+
+ I got a bunch of those from him when I first met him。6ix， seven years ago。 So yeah。
+
+ I do them daily for at least a couple to a few months until you just。You know。
+
+ until it's like autopilot until you can do， for example， that 15 minutes straight of just。
+
+No and stop fucking talking， pllowing， do them every fucking day。 You know， it's like。That's。
+
+ by the way， too。 if you watch the the latest。Book club video I did on actually。
+
+ I have it here on the slide edge。 either read this book。 I mean， it's kind of repetitive。
+
+ but it's good or watch the video on my join self channel。
+
+ It's really about like successes like those basic fundamental things over and over and over again。
+
+ You know， it's like those seven exercises。 It's easy to be like， well， they're just exercises。
+
+ It's like， no， that's the shit。 Oh and did it first。
+
+ That's the shit I did every single day for a period of time。 You know。
+
+ it's like it's those foundational things。 It's like the behind the scenes， things。
+
+ It's the stuff where no one will applaud。 You know， it's like no one gives a fuck。
+
+ no one can imagine an advanced guy doing these fucking exercises like， yeah。You know。
+
+ do one what I'd say with discipline is like， realize。That if you want to get good。
+
+ it's not about necessarily becoming more disciplined。
+
+ It's just about having enough discipline for a period of time until you make something a habit。
+
+ Okay， huge where， you know， right now。I mean， I used to think about this in business。
+
+ say with people who are more successful I'm like fuck。
+
+ how do they have so much discipline you may be thinking this in terms of game。
+
+ you're looking at people who， you know they go out more。
+
+ they don't have trouble going out they're like how the fuck did they become you know are they so disciplined if you're someone right now who in terms of accountability say you have approach anxiety you may be looking at me and be like how the fuck does this dude go out and you know have so much discipline to barrel through the approach anxiety？
+
+And it's not that I have more discipline。 it's like we all have the same amount of discipline okay。
+
+ like whatever amount of discipline you have right now， that's the amount I have。 however。
+
+ I've been strategic in terms of how I used it to make certain activities just habits。
+
+ so I don't have to use any discipline on them。That's how you get there。 You know。
+
+ it's like someone who。For example， never reads。For him to read 10 pages of a fucking book。
+
+ it requires a lot of discipline。 But say you do that for like a month straight。 It's a habit。
+
+ And then you can invest。That discipline that you would have used to read the book on something else。
+
+ And then you make that a habit。 Then you make this a habit。
+
+ So it's like the same amount of discipline the entire time。 just make habits out of it。
+
+ So anyone who's good at game or anyone who's， successful in life。
+
+ they don't have a more discipline that't you， There's nothing missing。
+
+ They just have strategically invested it to develop habits and you know。
+
+ it's like if you find yourself digging off again or going back to old habits。
+
+ It's like it takes time。 And， you know， set up an environment that supports whatever new habits you want to take on。
+
+ Do you have any tips on handling language barrier。For that， okay， well， first of all， again。
+
+ it's like it really doesn't matter like she's looking at the subcommunications like you don't need to learn the language。
+
+ but you may occasionally get， you know， the initial like nope。
+
+ like block off if you don't speak the language。 Okay a place。
+
+ the only place I really experience that。 I mean， not me， but like friends was in Paris。
+
+ Okay so if you go to France and you don't speak French， they'll be very quick to just be like no。
+
+ no English English English and just walk off。 even if you are a cool guy they'll just immediately block it off like a reflex。
+
+ I've not seen that really in any other country。Maybe Argentina a little bit like depends Argentina。
+
+ maybe if you're like kind of chody， like it's just a lot more ruthless， it's like easier to be like。
+
+ no English and you're done like for a student or something。
+
+ but if you're on point like you shouldn't get any of that。
+
+ But otherwise the one tip is just learn like a couple sentences or a couple words。
+
+Learn like how's it going or hey， literally anything， you know， And then when you open。
+
+ spit out that first line or two that you learned in their language so they can experience you and they don't have that immediate reflex to block you off and there' just be likesych I actually speak English。
+
+But then you already hoped at that point。 If you make scripts for your YouTube video， yes and no。
+
+ I found like a balance where。Some I just do no script at all， some are a little heavily scripted。
+
+ Some are in between。 the ideal that I found is in between。 if you do too heavily scripted。
+
+ kind of like in pickup， you get shoved in your head and your micro there's not that same flow。
+
+ If you're too freestyle， it can be kind of all over the place raly so kind of having like a few bullets and then just。
+
+Letting the chips fall where they may works for me the best。
+
+Current stick points I'm focusing on in life。Fuck man， I mean。
+
+ the big one this year was getting back on top of my health。
+
+ which I'm pretty happy with the routine I'm going now as of this week I'm starting to bulk up。
+
+ So next few videos。Next three months， you'll see me slowly get bigger。呃。But otherwise。
+
+ like health optimize all that， I'd say right now the。Other stain points would be。Join himself。
+
+ focusing on joining himself， kind of amping up that side of the。
+
+ It's more like business sticking points， like setting all that up。Getting all the。
+
+Like balancing the research in the production of content。That's a tough one。
+
+ I mean pickup helps a lot， but it's like to。Get this jewel himself thing off the ground。
+
+ It requires a lot more。A lot more disciplined in terms of that， where it's like， you know。
+
+ you can be like doing all this research， looking up all this stuff， looking at your experiences。
+
+ references， But there's like the taking in of information and the putting out。
+
+ And if you're just to constantly be putting out like extremely high level and you'd be taking in a lot。
+
+ So kind of balancing those two。So I'd say that otherwise sticking point， as I kind of mentioned。
+
+ like having an extremely clear vision of where I want to go would join himself。
+
+ which I don't entirely have yet， I have like 80% of it， but not 100%， so clear vision of。
+
+Where I want to go the type of product I want to work on the exact。
+
+I like the unique style that I have the exact message that I have， what the brand stands for。啊。
+
+So that's the one's it's a blend like my strengths are。Well， the two big。
+
+ like the two unique selling points is pick up and media scandal。 Those are the big two ones。
+
+ and then。It'll most likely like the core message or the brand of the a blend of social intelligence。
+
+ which I'm going to start bringing back to that channel。
+
+ So you know it's like although the pick of videos are done except for the occasional one here and there。
+
+ the ideas on social dynamics will still be there。 I'm going like go a lot more Like I'm going keep going in depth legislative social dynamics。
+
+ but not framed as how to fuck girl， which just general social dynamics on the channel。
+
+ So there'll be videos on social dynamics， a big other one too is like。Trapps of success。
+
+ like that's a big one order traps of validation， addiction of validation。
+
+ the downside of validation， so social intelligence， social dynamics。
+
+ downside of validation success and。Then like a hint of spirituality into that。
+
+ So those would be kind of like the。The three that I want to hit on， but。Yeah， and passion， too。
+
+ I mean， obviously。But I need to be more clear on that。 So in terms of the sticking points。
+
+ I mean those。Those are the ones。Right now that I'm working on。Women are not princesses。
+
+ What are they for you。I'm assuming where you're saying here is like the princess has been put on a pedestal。
+
+ What are they to me， human beings。Yeah， the whole the whole idea of likes not women are not princesses。
+
+ it's not to bring them down， it's just too。You don't judge them positively。
+
+ You don't judge them negatively。 You see them for human beings in terms of connecting with business people who could really improve your income pretty unstable financially。
+
+ How do you trick your mind and let you go talking to them。
+
+ What's the same as kind of what a girl dude。 It's like。You know， it's like you one。
+
+ you got to stop judging your value based on what you have， be it， you know， as you said， like， oh。
+
+ I'm unstable financially。That determines my value in comparison to them who are stable financially when it doesn't。
+
+ You know， it's like valuing the human side。 You know， it's like， have to say。
+
+ not valuing who you are based on those external factors。So it's just like realizing， hey。
+
+ we're all fucking human， it doesn't matter， you know， not getting sucked into that。And。
+
+In terms of letting go， it's like。It's more of like assuming versus trying so hard。 You know。
+
+ this is something you can kind of reflect on too。 I like it。 It's。Every time you try。
+
+So hard to make something happen or you try so hard to control something or to get a girl's reaction。
+
+ even or to control an interaction。 What's the basic assumption that if you don't try so hard。
+
+ as cheesy as it sounds， life is against you。You know it's like if I don't try so hard to get the reactions that I won't I won't get them because life is against me so I must control everything for life to be on my side。
+
+ but you once you kind of realize like hey， life is not against you more often than not you know it is on your side if you go really deep you realize no matter what happens it is on your side and the more you kind of trust that the less need of control you have you know。
+
+ it's like control really comes from fear and that deep assumption that life is out to fuck you over。
+
+So that's kind of how I let go， you know， it's like， hey。Life's on my side。 I skin happen。
+
+ It's all good and funny enough。 It becomes a self fulfill prophecy。 And it does happen。
+
+ I don't need to control everything so much。
