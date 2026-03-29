@@ -1,0 +1,92 @@
+# 05、朱利安 《Ten game十戒》：朱利安ten game：​1.游戏的十大法则：法则 8-为胜利而战【加群主微信kc58567获取最新更新】
+
+Plain to win。This is big where。If you think about it， it's like you're going up。
+
+ you're offering an abundance of fun。 And the way an interaction naturally progresses is it just expands。
+
+Most guys try to stop that expansion。They're too scared of going all the way to say sex。
+
+Because that's how he goes， it's like， we're having fun， how can we have more fun。
+
+ how can we have more fun at some point ats sex。And guys are too scared。 They hold it back。
+
+And the girl's like， fuck this， it kills the interaction。You always have to be playing to win。
+
+Okay don't try to leave on a high note， don't try to hold back。
+
+ it's like go with the flow of it and think about what outcome or climax you're going for。
+
+ There's three outcomes basically okay and this is how it works。you're playing to win。
+
+ you're always thinking。You're either going to pull her？That's plan A。
+
+Which is what you're trying to do。But not all girls will be down。If they're not down。
+
+ what do most guys do， they either interpret it as a rejection or they go for the phone number。
+
+And what do they miss out on？Fucking Claan B， which is go with her。
+
+Be willing to change courses of action， just go with her。
+
+A lot of being relatable to is changing courses of action， not getting your ego involved。
+
+ but basically plan B， that's like 50% of your fucking results。50% of the girls you will sleep with。
+
+ you're going to go with them。If you just try to pull。As we talked about last night。
+
+ you're leaving a lot on the fucking table。 in reality， the way it works is。
+
+You're probably going to pull 30% of the girls。You're going to go with 70%。However。
+
+ you will fuck more of the girls you pull than the girls you go with。 So in the end。
+
+ it evens out to a 50，50。😡，You know， but。Polling's just 30%。啊，所以我就明为多。
+
+You can bring her to your bed or you can go with her to her bed。スレル。
+
+Every girl at the end of the night is going into a bed。
+
+Find a way to go in there with her or to be there when she gets in bed。Okay， and if that fails。
+
+ only then you go for the phone number。But don't miss this step here。
+
+And you better be thinking like this is where the interaction should go。It's not just。
+
+ let's just keep talking， let's just keep talking。You probably realize this you miss the window sometimes where it expands。
+
+ you get rejected。I remember that happened to me the first time I ever kissed a girl cold approach。
+
+I would talk to these girls and I got past， you know， approach anxiety and start hooking them。
+
+ and then I'd get into like these long sets where we got really serious talking。
+
+ you guys ever have those， we just like sit down you're really into it and then at some point you're like。
+
+ fuck I should kiss her。She expects it too， and then you're too scared。And you keep talking。
+
+ and you keep talking。W when it dies down and you're done。Because she's like， oh， we're expanding。
+
+ we're expanding。 Oh， he's a fagging out done。You know。
+
+ the same will happen with pulling if you don't keep building it to sex。
+
+ something you're taking away from the fun。Something to keep in mind okay so you have to play to win and you have to start thinking about what's the win and it's not getting the girl to getting everyone to like you as we talked about before it's taking things to the climax。
+
+ whatever that climax is， yes， you and the new yeah。Of course， still。Exactly what I said here。
+
+ don't accelerate it。But realize that it's more unfair to take away from that win。
+
+ Like that wins a win for both of you。That's why she gets rejected。 If you miss the window。
+
+ you start you get away from that giving to taking， you take away from the fun。
+
+ you're not providing value anymore。Because there's that famous quote that says basically 95% people。
+
+What a gold medal in the electric。hate to lose， but the other 5% that wouldnt only enjoy winning。
+
+ is that also quite a game？Yeah， but again， it's like。The win overall is that feeling of giving。
+
+ That's the win。You focus on that， it'll naturally lead towards sex。
+
+ Don't think of just sex as the win。 Otherwise， you'll hate the interaction。
+

@@ -1,0 +1,346 @@
+# 05、朱利安 《Ten game十戒》：朱利安ten game：​1.游戏的十大法则：法则 10 - 将其应用到你的生活中【加群主微信kc58567获取最新更新】
+
+So I thought Id make this one here， the 10th law to just really hammer on the importance of not limiting yourself to just success with women。
+
+ Okay， you should also apply all of this。 Okay， apply 10 game to your life。
+
+ apply this to your friendships to your job to different business relationships to every single aspect of your life。
+
+ if you're only benefiting in the success with women area， you're missing out on a lot。
+
+ to kind of hammer this point home too， I thought I'd kind of talk about my journey in the game。
+
+ I found out about this almost 10 years ago now， originally from Switzerland。
+
+ And I randomly read a book called the game at the time。 Okay， and up until that point。
+
+ the way I'd go about know， living my life is I was extremely shy。
+
+ extremely introverted just you know， extremely anxious， stressed， paranoid。
+
+ worried about what people thought of me and just walking around in a state of constant misery every single day。
+
+ know， and we rarely take time to just be aware of how we feel I kind of just thought that was the default。
+
+Like even right now， if you're watching this， you can do a little test。
+
+ like go inside your body and notice like how do you feel， know， is there any tenseness。
+
+ Do you have a nod in your stomach， even is your body language a little bit tense。
+
+ Are you fully relaxed， Are you fully at ease。 tried to objectively look at it and be like， hey。
+
+ if someone else was feeling what I'm feeling right now。
+
+ would that be an enjoyable experience or not know， And for me back in the day。
+
+ it was probably a three out of 10 every single day。 And I was just like， well。
+
+ I this is just how things are， I didn't even think I could do anything about it。
+
+ And I didn't think I had control over my life。 I remember。😊，You know。
+
+ falling into a lot of victim mentality tendencies where I was like why is happening to me。
+
+ I'd see other people just like way more successful， just having way more of a blast in life than me。
+
+ having all these awesome experiences I'm like why me know and you try to conform you think the more you can form the more people you please you know maybe things will turn out better And there's a lot of hope and really like up to luck。
+
+ and finding out about you know this whole successive women community reading that book the game at the time。
+
+ just really blew my mind。 know， on one hand is like holy shit。 like of course， there's the girls。
+
+ but going so much just further beyond that。 it gave me a sense of control up until that point you're really a victim of circumstancesstance。
+
+ you're just like you're in these different situations and that's kind of what shapes you and you hope for better situations with this here。
+
+ it's like， hey， you can do something about this。 know， suddenly your life you know。
+
+ is in your control again and that's really that was really like the appeal for me。 I was like。
+
+Holy fuck like I can do something about this。 like women， holy shit。
+
+ And and it starts with the women。 You know， that's like the lore。 It's like， hey。
+
+ come for the women kind of like back in the day with selfhelp。 know， it's like come for the money。
+
+ make money。 But then you get into it this。 And there's this whole other world。
+
+ the same with success with women。 You know， I had went out And I was thinking， you know。
+
+ just women at first。 And I was so shy at the time。 Like I couldn't even make small talk with anyone。
+
+ I couldn't even ask an old lady for the time walking down the street。 So， know， it took a while。
+
+ I mean， just going out this anxious state。 I finally was able to go up and say hi to， you know。
+
+ the first girl strange or let's just say in my life。 And I remember doing that。
+
+ And it just felt it was crazy。 like on one hand。I that was probably the first time in my life I really felt alive。
+
+ Like I remember I was walking down the street This after like， you know。
+
+ a couple months of just walking around， just not being able to say hi to anyone。
+
+ And this is like two hours in。 I was like like saying， okay。
+
+ I'm gonna go home walking around the street during the day。 Bo， Two girls。 like this is it。😊。
+
+Finally said hi in that moment where it's like， finally said hi。's like something just took over。
+
+ like it wasn't even me。 It was just like， what am I doing this， I'm really doing this。
+
+ All of my faculties were just like。Active， I was， I was alive。
+
+ There was that adrenaline that just feeling of like yes， finally。
+
+ And I finally said hi and you know， didn't go anywhere。 I was like。
+
+ he' was it going at the time there were routine。 So I like spit out like a few little canned like stories I memorized and just left。
+
+ And although it didn't go anywhere in my mind， I was like， oh my God。 Like。
+
+ I got hooked on that feeling there。 And that feeling。😊，Of， you know， just being alive of freedom。
+
+ of just， again， just making sense。 That's what motivated me。 It was never so much like。
+
+ oh the fear like up until after that point， it was never the fear， the anxiety running away from。
+
+ It was like， I wanted that。 And I was running towards that。 And not only that。
+
+ But that was the first time too， where I started building that trust in myself。 You know， it's like。
+
+ hey， I can do this because in pickup， it really is especially for a guy like a fucking right of passage。
+
+ You know， like boyhood to manhood where， you know， there's not that much in your life。
+
+The the way we're conditioned the society we live in where， you know， you。
+
+ you kind of can tap into that sense of adventure， Al aliveness。
+
+ And it's really like that stepping stone where， you know， in pickup， you're there alone。
+
+ like no one's gonna do this for you。 It's like you're there alone。 And when it comes to it。
+
+ it really taps into something extremely primal。 And it's you're gonna do it or not。
+
+ And you're there。 And there's the girl and you're like。Holy fuck。 Let's see。
+
+ And let's fucking it's like make that leap。 And that's just like part one。 it's like holy fuck。
+
+ I did this alone。 This is like me。 It's like the most personal challenge you could ever give yourself And it just hits on such a deep level。
+
+ And I just got hooked on this。 And I just wanted more and more and more。 So I started going out。
+
+ putting myself in these different situations and started slowly started building like thats self- trustrus。
+
+You know， as well as self worth， like in terms of what I deserve instead of being like a victim I'm like。
+
+ hey。I can actually like start believing myself and you're like， maybe I deserve more。
+
+Maybe you don't have to be a fucking victim。 So that went on for a good three years in Switzerland。
+
+Just going out， you know really like there were times obviously， where it wasn't a blast。
+
+ There were times where it was horrible and scary。 But I was tried to keep like a really positive attitude and remind myself about that first interaction。
+
+ like the sense of adventure， the sense of like just an epic story。
+
+ like even though it doesn't sound that epic。 if I think back now like that's probably one of my favorite moments in my entire journey。
+
+ it's like that was it， that was the start。 and just slowly building that selftrust。
+
+ know trust in myself what I deserve that I can go for what I want that I don't have to feel boxed in。
+
+ like slowly moving from scarcity to abundance。 And it just went so far beyond just women。 know。
+
+ this affected just my life in general。 know， before that， I was really going the route of know。
+
+ I'm gonna study， get good grades know， I got into a really good college。
+
+ like I'll get good grades at the college， get a job， get a promotion， get a promotion， Re and die。
+
+ that'll be successful life。 And if I do that all right， hopefully I'll be happy。😊。
+
+And this showed me like， hey， you don't have to like suffer through it。 It's like。
+
+ you can take control the same with women with your life。
+
+And this is what gave me the self trust to move even to America， from Switzerland to America。
+
+ which was terrifying at the time， and it was really pickup and I remember thinking that I'm like。
+
+Holy shit， like if I was able to deal on my own with all these different situations with women。
+
+ which again， from where I was coming from。 And even as a guy， it's like extremely scary at times。
+
+ like it taps in something really prim。 like， of course， you know， I could do this moving to America。
+
+ There was that self trustt。 Like I don't really know how I'll do it。
+
+ But I trust that once I'm in that scenario。 once I jump in， I'll figure it out。 You know。
+
+ that self- trustt in that sense of like， I deserve this。
+
+ And that's really what kept pushing me throughout my life to this day。
+
+ it all started with that first fucking open。 This applied to different friendships。
+
+ different relationships。 I would never have been able to even be in a relationship without pickup。
+
+Because we think from an outsider's perspective， it's all about going out and pimping hoes。But no。
+
+ this is really about you， like on a surface level。
+
+ it's like you going out and interacting with all these different women。
+
+ you're really moving from scarcity to abundance。That's what it is。You know， and through that。
+
+ you can finally know what type of woman you actually like because until then you really don't know。
+
+ And this is， in my opinion， why a lot of relationships fail。 fail。 It's like， you're in scarcity。
+
+ very few options。 You kind of settle。 She probably kind of settles too。 You're not a good match。
+
+ There's no chemistry。 And of course， it's gonna go to shit。But with pickup。
+
+ it's like you can go out and you're just。Putting yourself into so many different social interactions。
+
+ experiencing so many different women。That you finally know like， oh。
+
+ I have a lot of chemistry with this type of girl。Not this one， but this one。
+
+ And until you experience that， you really have no idea right now。
+
+ if you you haven't gone out much you're probably thinking， well， like this， this is my ideal。
+
+ But that's not really your ideal。 That's you thinking， it's your ideal。
+
+ It's probably a rejection of you in a way。 And if you actually dated her， you， you know， go to shit。
+
+So you learn it through experience， you now know what you want from there。
+
+ you're also coming from abundance。You know， going through the process of pickup is the only way to actually experience as cheesy as it sounds real love until then。
+
+ it's all just scarcity。Most guys， like love or even every you know。
+
+ kind gesture is coming from a place of manipulation or bribery。Where right now， it's like， you know。
+
+ I really like， say you're in scarcity。 You have a few options。 You're like。
+
+ I really want a girlfriend。 If I just got a really hot girl， I would do anything for her。
+
+ But all of your actions， as we've been talking about， like about the being。
+
+ the place they're coming from is scarcity。 You're doing it because you know， you need her。
+
+ And you'd probably do it for her or any hot girl doesn't matter。😊，Once you're from abundance。
+
+Where you have a lot of options。 and beyond that， you've discovered yourself and you realize like。
+
+ hey， I've been complete all long。You， it's not like I was piece of shit trying to get there。
+
+ it's like I'm already there。Now it's coming from a real place。Now。
+
+ if you want to like get into a relationship， if you want to do all these kind gestures。
+
+ it's actually real， it's no longer manipulational bribery。Beyond that too。
+
+ what does pickup allow you to do， learn to one， get back in touch with your emotions。
+
+ something society tells us to just keep numbing。 It's like， hey you're a guy， repress them。
+
+ suppress them， like don' ignore your emotions。You know， it's like a sensitive guy is not a real man。
+
+ All that shit there。 This will force you to get back in touch with that。
+
+ It'll force you to start connecting with the girl， too。 You have to develop massive empathy。
+
+ You have to know exactly what she's feeling。 So you guys both meet on， you know。
+
+ similar like a common， emotional ground， let's just say。
+
+It'll also allow you to learn to be vulnerable because that's the only way too， if you're not real。
+
+ if you're not able to put that out there to put yourself on the fucking line。
+
+ it's not going to work。You know， and there's no other， you know。
+
+ there's not that many other situations in life where it's like you have to do it。
+
+ And if you're not vulnerable， it'll fuck up。A lot of situations situations in life。
+
+ you can just like， get away with it。Unfortunately。
+
+ this is one where it's like you can't cheat the system and it will really burn away all impurity。
+
+ it'll burn away your ego。 It'll burn away your need for validation。 It'll burn away that front。
+
+ It'll force you to get back in touch with your emotions， get in touch with her emotions。
+
+ you'll learn so much about yourself。 and even that。
+
+ if you get into a relationship like that'll prepare you to get in a relationship。
+
+ If you can't be vulnerable in the initial interaction。
+
+ It'll never be vulnerable in the relationship。 It won't go anywhere。
+
+ So you'll learn that with friendships。 It's the same thing。
+
+You knowNow you can actually have real friendships， so you can learn how to vibe。
+
+That's something Pick will teach you， which a lot of guys have no idea just how to do。
+
+ It's like we're so logical。Even getting into pick， it's like， what's the next step。
+
+ we don't learn how to just enjoy someone just for the sake of enjoying them。Socializing。
+
+ just for the sake of socializing。You know， you'll also learn just in terms of the type of people you attract。
+
+ now that you're going places， you'll attract better people are also going places similar mindsets to you。
+
+ This will apply to your job， you know， in terms of what you think you deserve。
+
+Of taking risks in your job， jumping at opportunities。It's the exact same principles。in game。
+
+You know， I would never have jumped at different opportunities like even with my job here。
+
+ like public speaking， the first time I was going on stage， I was like scared， shitless。
+
+ but through pickup， seeing opportunities， embracing that and just thriving and like enjoying like the new risk or the new story that may come of it。
+
+ That's what allowed me to go for it。 know， your sense of what you deserve different success barriers。
+
+ you have to blast through just other concepts like offering value。
+
+ If you apply that to other areas of your life。 like your life will explode。 know。
+
+ friendships of business， if you learn offer value instead of taking value， you will get far。😊，Okay。
+
+ so with this video here。 and again， this little story of mine。Just。
+
+ I just really want to hammer on that point where it's like。
+
+ don't just limit yourself success with success with women。 Okay。
+
+ it's like it should go away beyond that。 really apply this to your life。 If you do， I mean。
+
+ the the same。Success you will get with women。 You will get it in life。It'll be just fun， effortless。
+
+Yeah， I mean， I can'， I can't even really put in words like I would not be here without the game。
+
+ And if it's just women， you're missing out on a lot。 Okay， and guess what they go hand in hand。
+
+The successful woman will help your life。 And if you do this to your life。
+
+ it will also help success with women。 Okay， you can't just be someone， for example。
+
+ who's offering value only when he goes out。And then you take value like 95% of the time。
+
+ like during your day， day life。 It's not going to work that way。Okay。
+
+ you really have to embrace this way of being 24，7。 This is now who you are。So that's law number 10。
+
+ apply this to your life， embrace this way of being this is now you。
+

@@ -1,0 +1,989 @@
+# 05、朱利安 《Ten game十戒》：6.奖金：训练营简报2 Bootcamp Debrief 2【加群主微信kc58567获取最新更新】
+
+Whatever outcome you want， usually the only way to get it because otherwise you're too attached to it is to do something。
+
+That'll attract it。 Okay， it's by doing something else。
+
+ You get that outcome as a byproduct of doing it。 So on amic on a macro level。
+
+ say success with women， How do you get women by bettering yourself as a person。By you doing that。
+
+ focusing on action that's in your control， women come as a byproduct。
+
+When I go out to a club and say to me like whenWhen's the girl， who's the girl， how do I get a girl。
+
+ I cultivate a lot of fun， a lot of care freeeeness， a lot of excitement， passion。
+
+ and I get girls as a byproduct of doing that。So I'm most focused on that， it's like。
+
+ what's the action？Where you get the result you want is a byproduct of doing that fun， positivity。
+
+ so on and so forth， smiling， etc ceter， carefreeness， feeling at ease， relaxed。
+
+ not like forcing it and passions like more excited so on and so forth。
+
+ and all of these should be for you， not the girl。You're not trying to like， be fun to get the girl。
+
+ You're not trying to be that to get the girl。 It has to be genuinely for you。
+
+ How can you cultivate that self fun， carefreeness and passion， Okay。
+
+ and this is my focus in the first part of the night。 When you do that， guess what。
+
+ It's in your control，'ll you should never reach a point where you have a shitty night out。😊，Why。
+
+ because no matter what happens， you can find ways to cultivate more of this vibe。
+
+It's not dependent on anything external， you get rejected。
+
+ you can find ways to have fun with getting rejected， in reality it's a lot easier。
+
+ laugh at yourself， then you accomplish fun and carefreeness at the same time。It goes well。
+
+ you can accomplish fun， you can accomplish excitement， no matter what happens。
+
+ you can cultivate more of this fight and once again。
+
+ this should be how well you know you're doing throughout the night It's not the girls you get or the girls who like you it's。
+
+How much of these three things do I have and with every interaction you have a little bit more than before。
+
+ a little bit more than before， a little bit more than before。Okay。
+
+ and you should ideally be so focused on this that you don't have enough mental energy to even focus on the fucking girl or getting the girl。
+
+It's just assumed。Like girls will just naturally just kind of pop in there's not so much of that pursuing effort because as soon as you think of an outcome or think of attached to the outcome。
+
+ you're attached to the outcome。By the fact， you even acknowledge that there's an outcome you attached to the outcome。
+
+For me， if you look at me， I'm still wrapped up in my own party， my own movie。
+
+That's why I feel at ease。 That's why I can walk up。 That's I'm not like fear of being entitled。
+
+And again， it has to be， and that's the subtlety with you， it has to be for you not for the girl。
+
+ because you do it for the girl， you turn it into gay man。You do it for you。
+
+ you'll be a lot more relaxed and taking your time when doing it because there's not that pressure of getting an outcome by doing it Passion。
+
+ it's more so in the vibe like excitement， engagement。In what you're saying。 So， for example。
+
+ even this debrief here。It's pretty you kind of get drawn in because I'm into it if I'm like so yeah。
+
+ this is all in the vibe， this is all the vibe， you need a fun positive vibe。
+
+ a carefree relaxed vibe and an engaged， exciting vibe even like every word you say like we're passionate about。
+
+Yes。And this doesn't mean necessarily high energy。Don't confuse it with high energy。
+
+ The way it goes is you going。You escalate a bit until you reach that point of。She's you know。
+
+ acknowledging your existence， quiet and attentive。And once she cares when she's there。
+
+ instead of keeping it going， you keep her there for a longer period of time。It's horizontal。
+
+And your only goal during that time， okay because like women are like a volume knob。
+
+ you led the emotions to what they need to do， your only goal is to focus on logistics and getting her in a situation where you can then proceed vertically and something can happen。
+
+So remember a lot of us we caught up in like more， more， more， more and more now。
+
+ just reach that point and then keep her in that same state。
+
+ Let her emotions do what they need to do， focus on isolation。Then once it're isolated， then' more。
+
+For example， guys like， I need a finger girl in the club。
+
+ The only time I'll ever finger a girl in the club is if I'm going fucker in the club。 Otherwise。
+
+ there's no way in hell and finger the club。 There's no purpose。 You don't even need to make out。
+
+ exactly。 It's like you just need to get that point where she's like， she goes from a to。😡，h。
+
+ like the anime eyes a little bit and then just keep her there。and focus on logistics。
+
+ and then once you're in a room or something， then just naturally escalate。
+
+ but now there's the possibility for something to happen。
+
+And this is why a lot of guys fuck up too because they get the girl attracted， but there's no way to。
+
+ at some point you reach a ceiling because of the environment。And then she's like， oh。
+
+ and then it stagnateates in their dies， Yeah， have be careful of being like the make grinding guy。
+
+They'll be makego guys， yeah。You can do it though， but usually I'll do like a little burst of it and then I'll keep it going。
+
+So that's a big one。 So don't focus so much on gaming。 It's like get in the habit。
+
+ It's more like endurance。 like longer sets， longer sets， keeping of that same state。
+
+ And the other one too， is remember why you're there。 it's like。
+
+ don't be ashamed of putting those intentions out there because that's also a big source of trying to be funny and exciting。
+
+ Its you want to compensate like hey， like me because know。
+
+ I like you and you're kind of afraid of me like hey I want to fuck you type of vibe。
+
+ know and it's similar to they talk about like in sales， if you're if you're there to sell。
+
+ say like on a stage or something， you're not there to make their crowd laugh。
+
+ You're there to make them buy if they're laughing， what are they not doing fine。
+
+You're not there to be the clown， the same with the girl。
+
+ you're not there to make her laugh and entertain her night， you're there to fuck her。
+
+If she's laughing， what is she not doing a sucking your dick？You're not there to make your laugh。
+
+ You're there to make it suck your di。 A lot of the fun or niceness。 We think it's genuine。
+
+ but in reality， it's insecurity to avoid having to deal with like putting that out there and the potential tension that it can create。
+
+ So on one hand， you need to progressively desensitize yourself and mean fully okay。
+
+ like letting that tension build。😊，Like straight up， like I like you。And just hold it there。
+
+Like full on and she'll be like like you're going to encounter that polarity and don't break the tension because that's kind of one of the reasons too it's like you lit the tension that you're like yes keep the fun going it's like no。
+
+ it's like mafia bosss， gorilla， I like you。Silent ice。Okay。
+
+ so it's like solely kind of getting used to that vibe， don't avoid the tension。
+
+ desensitize yourself to it and number three， you need to know what value you're bringing to the table。
+
+And this is big， especially when pulling。 Everything's in exchange。 If you， for example。
+
+ don't feel fully at ease putting yourself out there oftentimes or say pulling the trigger。
+
+ And you might have experienced this say when you ask for a number。
+
+ sometimes there's a little pressure and you feel a little sleazy or a little guilty sometimes you're like。
+
+ oh， it's number time。 like that。 oh， it's time to pull。 You know， It's like。
+
+ it's not as fun and carefree is when you're joking around。 And for that there。
+
+ usually it' because you don't know what value bringing the table。
+
+ So what value are you bringing the table。 What is the girl gonna get out of fucking you。
+
+How are you going to positively impact your life， what are the benefits？If you don't know。
+
+ no wonder it's hard to put yourself out there。If you don't know， then the only thing is like。
+
+ you're just focused on what you can take。And then of course， you' are going to feel s。
+
+ youre going to feel like compensating by fun because that's the way you view it's like I have nothing to give。
+
+ but I can take all this validation， it's sex and Hog girls。What is she getting out of it？
+
+And this is something I'd recommend you do。Basically， you know。
+
+ say tomorrow or something like sit down and write a huge list of all the benefits。
+
+ And it could be small ones to big ones。 You know， like even stuff like good sex。 Here's one。
+
+ say you're into personal development。 that'll rub off on her life。 She can apply those concepts。
+
+ It'll affect her work。 It'll affect this。 It'll affect that。 good time。 I'll show my experiences。
+
+ I'll bring her into my passion。 She this。 like the bigger the list， the better。
+
+ And the reason I say write it out is it forces you to be precise。It's precise as possible。
+
+ so when you walk up to that girl， even off the open， you know what she's getting out of it。
+
+And it's no longer sleazy trying to swoop in or trying to compensate with fun entertainer mode。
+
+ it's like， hey。You know， that's what also allows you to even kind of relax and feel entitled and not so attached。
+
+Because there's not that sleeziness， you're not taking， you're given the benefits。Now you know this。
+
+ she doesn't know that。And because that is your job to leader to the benefits。And in reality。
+
+ the bad thing to do or the thing that you should feel guilty about doing is not leading her to the benefits。
+
+ You know， this will happen sometimes with newbies， they start opening。
+
+ and then they get used to doing the crazier， crazier thing。
+
+ and then they can't slow down and connect at all。It's like how many girls did you actually connect with yesterday？
+
+Actually knew about who you were on a deep level。You were fun， some girls might have liked it like。
+
+ oh， this guy's funny。But there's nothing that generated out of that conversation。
+
+I want the generative conversation it's like when you。You know。
+
+ it's like you talk to your friend like if you have a friend and like it's one of those like two types of conversations one' you just like。
+
+ ohy， what's up and then some other and you probably all experience this with a close friend where it's like usually have a couple drinks since late at night and you just get really deep and kind like open up so on so forth that theres where there's like a deep fucking bond something comes out of that conversation do that with girls and how do you do that like in an environment。
+
+How's it going， don't get sucked into the environment。Remember， you don't have。
+
+ don't react to the environment， it's okay to slow down， it's okay to be low energy。
+
+She gets sucked into your vibe。On the dance floor， I'll never usually dance。🎼I's like， hey。
+
+ how's it going， Ta that pressure off， Like identifying the pressure。
+
+ Like I want all of you to do this a bit tonight。 Like you're all gonna feel like oh like tense at times and it could be attached to the outcome。
+
+ Find out where the pressure is coming from。 say you fall back into the fun thing。
+
+ It's like oh I falling back to the fun thing。 Is it what I want to do or is it because there's a certain pressure。
+
+ Am I running towards a running away from something。
+
+ And just solely identifying it same for all you guys。
+
+ And I want a few reasons we can break down tomorrow。 But for you tonight， I'll kind of monitor。
+
+ And if I see it， I'll slow you down and we' like kind of get in the practice of bringing out that realness that'll be a lot scary or funny enough。
+
+ And it's one of those situations too， where you can't keep doing the crazy thing because you just keep banging your head against the wall。
+
+ It's like taking that step back And like。Walking around。 So it's like slowing it down a bit。
+
+ also having longer interactions， letting the tension naturally build instead of spiking it with fun and kind of getting some actual proof that the girl can like you for as a person versus the funny stuff or the crazy things you say or do The key is never avoid it because then that's when you turn into kind of link to people pleasing。
+
+ that's when you compensate by fun or compensate by this。
+
+ And you play more so not to lose versus playing to win。
+
+ And a big thing is accepting that those situations will arise。 And instead of avoiding it。
+
+ it's more so progressively desensitizing yourself to it。 It's like baby steppingping your way there。
+
+ in more like controlled situations。 So that's why I say building the endurance muscle。
+
+ It's like in the long interactions， you'll have that little dip。
+
+ And at first just survive a little longer than a little bit longer than a little bit longer than a little bit longer than at ease。
+
+ because you'll never get rid of them。 especially in terms of rising in value。
+
+ If your guys is like high value in a club。 girls are gonna stare you。
+
+ guys are gonna to stare you theyre。Ju you in a good way or bad way。
+
+ both there's gonna be a lot of pressure。 And it kind of comes with the territory。 So by avoiding it。
+
+ you're always gonna have like this success barrier that you won't be able to pass。
+
+ So so it's not being like totally retarded with it and be like， like crazy things。
+
+ It's also in a smart， controlled way。 Baby stepping your way there。
+
+ We all have the pressure to like make every girl like us。Or we have pressure to not get rejected。
+
+ now on one hand there you have to realize that you're going to get rejected forever。
+
+Because that's just human nature， that's how it's supposed to be you know， if you meet someone new。
+
+ there's some people you get along really well some other people you don't。
+
+Did they do anything wrong， No，'s just that there's no connection。It'sThe same with girls。
+
+ That's natural。 So by trying to make every girl like you。 it's not realistic。 And two。
+
+ it's coming from the ultimate people， Please orra。 So instead， the way I view it is like。
+
+ I don't try to make every girl like me。 That was never the goal。 I' am totally fine。 Like。
+
+ no matter what I do， Some girls are not going like me， no matter what they do， Some girls。
+
+ I'm not going to like them。 Then you have to question， too， Why do you need everyone to like you。
+
+ Why is it so bad if they don't like you。What are you running away from because we're all running away from something。
+
+If you get to the root of it， a few of them is fear of being alone， we think， oh。
+
+ if people don't like me， then there's this and I'm alone， then I'm fear of abandonment。
+
+ fear of isolation to be an outcast or fear of being a bad person。
+
+ people judge me if I do something that's bad and get rejected， that means I'm bad。
+
+So on and so forth， and then you have to question too like the fear of being alone。
+
+ what's so bad about being alone， why do you need a girl？Do you ask yourself that Westerns all there。
+
+ why do you need to girl， Why do you need something external to complete you。
+
+ Why are you not complete right now？Why are you not enough？
+
+And it's coming to terms that you are enough， and then you get the girl not because you need to。
+
+ but because you want to。In a case it makes sense to kind of take the interaction that you're having on a higher level。
+
+But it's not like， I need her there。And then once you kind of get to that point there。
+
+ that's when your nights become fun too， because the pressure is gone and in a way that's where we're all chasing。
+
+ it's like ways to feel at ease or be happy。Like even there。
+
+ it's like you don't necessarily want all the girls to like you。
+
+ the reason you want that is if they all like you， you can。I made it。
+
+ I can finally relax and feel happy now if I fuck 100 girls， all my friends will approve。
+
+ that means I'm cool， or I can tell myself I'm cool。 But in reality。
+
+ we're not even chasing the girls， just chasing that。😊，Ah， finally。
+
+ it's like I don't have to keep chasing， I don't thought its pressure。
+
+But the key here is kind of questioning it into the other way around。 It's like when I go out， again。
+
+ that's that whole thing I'm not even caring。 You're just like。It's okay。 you get rejected。
+
+ It's okay。 so that doesn't go well。 It's okay。 and then it's like。You slowly start generating。
+
+ it's like people judge you， it's okay， you look retarded， it's okay。
+
+Because otherwise there's all these goals you need to live up to， I need to look cool。
+
+ I need to do this， I need to do this。It'll kill you。
+
+ how would you act if you knew you' were going to fuck a  tent at the end of the night？
+
+Because the lot of that stress is you're trying to get the girl， you're trying to do well。
+
+ What if I told you already did well， how do you act？At 3 amm， we're going to pull a ten。
+
+Would you care if you're talking ugly girls， would you care if this happened， no， you'd be like。
+
+all that pressure is already off， so a lot of is that chasing and funny enough。
+
+ you act as if you're going to fuck the 10。It'll become a self fulfilling prophecy。
+
+ and you'll get the ten。So for you， it's a lot of that less serious， less pressure， more loose。
+
+ more goofy， finding ways for your personality out there， stop trying to be so cool。
+
+ stop trying to make everyone like you。You know， generate that fun。
+
+ It's like be more polarizing some people I want more people to hate you， more people to love you。
+
+ I don't want to see people like you。Okay， I'll give you some exercises throughout the night。
+
+ We'll kind of play around that， but that would be like the general direction to move towards。
+
+ if you do that， it'll be very， very golden。 even at the end of the night。
+
+ say there's like all the hot girls are gone。Pull an ugly go。 And as he said。
+
+ you don't necessarily have to fuck her， but get that reference because you will see1s same fucking logistics。
+
+ And if you just wait for the tens to do it， you're fuck。 And then， yeah， I mean， it's like。
+
+ as you said， you can either fuck her or not。 That's up to you。 But again。
+
+ it doesn't lower your value either because that' you， guys are like， I must only fuck1s。
+
+ I means I'm a horrible person。No， it's like you're an awesome person you don't need that extra validation or you're not chasing to hide with the public image。
+
+ people have this impression where I'm like out and I'm like。like that in reality no。
+
+ it's like it's my party。And again， as I said， I'm going to talk to a lot of girls。
+
+ I'm going to move around and I just kind of keep it going and as I move， it's like arm's length。
+
+And it's it's more like a bring in process。 as I move。
+
+ I do the bring in versus these Now occasionally on boot camp。
+
+ I will send you across the room because I like dealing for you guys dealing with that pressure。
+
+ But ideally， it's like， yeah， so you're not like that。 It's not like the scanning。 It's like。
+
+Hey come here come here， come here come here come here And it's like it's super high valley because it looks like you know all these people too like anyone from the outside is like oh my God。
+
+ you don't stand out as a dude rushing up to sets and shit。 it's really good。
+
+ There's no point to it other than just selfexpress。
+
+ It's like ideally you reach that point where a night out I compare it's like detention like you're stuck there and it's like it's like what you want to do It's like you're stuck till the end of the night you assume you're gonna to fuck out the end of the night。
+
+You have three hours， four hours to burn。What do you want to do to make these three。
+
+ four hours awesome？That could be getting a number， It could be fucking up a set for fun。
+
+ It could be dancing a bit。 It could be fucking off your wings。 It could be doing some weird shit。
+
+ It's very like getting creative in a self in way like fuck what being this cool。
+
+Would be like ridiculous versus trying to live up to all these things。What would be awesome。
+
+ you know， while still taking action， obviously， So it's more of that thing there I'm like。
+
+ that'd be super weird and funny to do。 Let's fuck around here。 It's like make it like an epic movie。
+
+ The whole night's an epic movie。 What would make the movie more epic。 The rule is not。
+
+ I must keep them short。 It's usually they'll naturally die down， bouncece out。
+
+Or if you're not having fun， bounce out， but if you're having fun and it's going well。
+
+ keep riding that wave。Yeah， if I talked to a girl in the beginning it's going really well and it's keeping the fun going。
+
+ I'll talk to her even 20 minutes， it's like the beginning is all about you so though when 1 a hits。
+
+ you find yourself in a situation where you feel awesome， you have massive fun， passion。
+
+ carefreeness， you have a bunch of leads， a bunch of numbers， a bunch of logistics。
+
+ bang that's your only goal that at 1 a you're in that situation。And that's up to you。
+
+ And that's also that nothing to win， nothing to lose。 at 1 AM。
+
+ we're not going to usually have pulled yet。 while'll be still us here。
+
+ But there's different courses of action you can take before then to find yourself in a more beneficial situation at that point。
+
+ This will happen sometimes before you go out， but even while you go out。
+
+ Like you start off really well。 And then it kind of gets to you。 And you're like， oh。
+
+ I must keep doing well or do better。 And if I do worse， then I feel like shit。 Then I'm failing。
+
+And then again， like you have high expectations。 Then you're attached to a certain outcome。
+
+ It's the reason I tell you on day1 a boot camp。 Okay， remember， it's not a Hollywood movie。
+
+ Here remember that because that's what happens like you do well one night。 Okay。
+
+ it's like first time boot camp。 It's natural to think， well， it's a three day program。 Every day。
+
+ I get a little bit better。 And then you go out， and're like， okay， well's better， better do well。
+
+ holy fuck。 And then it's like there's that outcome in that pressure。 And when you expect it。
+
+ it goes to shit。 And you probably experienced that even in the past where I mean。
+
+ I had this so many times in the past。 Like， say there's like one night。
+
+ you're just really looking forward to it。 You know， it's like it's the big night。
+
+ it might be like some special event。 youre like weeks in the head looking for it。
+
+ and then it happens。 You just dog shit。Because you expect it so much okay why。
+
+ and it's kind of what we talked about yesterday， you're trying to make something happen instead of creating a situation where that allows it to happen and how do you create a situation allowing it to happen？
+
+You welcome like whatever happens science is gonna happen。 We all experiences。
+
+ Well that's more so on the general mindset than what gets on the more technical side。 Yeah。
+
+ this is like the general understanding。 But when you're having that statecra。
+
+ you can tell yourself like， oh I expect still it's still gonna puck you yeah。
+
+ but this is something that I try to remind myself every night before I go out Okay。
+
+ and you should do the same， It's like tonight， just notice like， okay。
+
+ is there any expectation pressure， is there is there certain things I'm like I'm expecting on myself tonight。
+
+And if there are newcom， now， that doesn't mean don't push yourself。 You know。
+
+ you're going to push yourself。 that's assumed。But that's the basic criteria。
+
+ I'm going to push myself。 and whatever happens happens。Either it'll be glorious。
+
+ Either I'll encounter a lot of resistance and a lot of rejection， and it'll be shitty。
+
+ But no matter what I'm going to learn。😊，And no matter what， it'll be interesting。Because that， too。
+
+ that's what makes it interesting is the fact that there are ups and downs。
+
+ the fact that it is messy， the fact that there are shitty times， the shitty nights。
+
+ that's what that's some contrast to it。 So tonight you could have an amazing night。
+
+ You could also have the worst night of the boot camp tonight。 Who knows。
+
+And as long as there's your resistance to it， usually that'll create a situation that allows it to go well。
+
+But then you can also be like， okay， is's your resistance because I want it to go well。
+
+ And now you're also attached the outcome。 So really， it is， whatever happens happens。Okay。
+
+ you know you're going to push yourself。 That's it， baseline。JustPush yourself。But don't be like。
+
+ I need to do this， I need to get two makeouts tonight， and I need to do this。
+
+ then it's way too much pressure。All you know is you're gonna to push yourself and whatever happens。
+
+ you're gonna to learn。 bangang， That's the mindset going into every single night。
+
+ every single time you go out。 So at some point tonight， you're going to feel your emotions go down。
+
+ That happens to me as well。Happens to all of us， that's the way emotions work。🎼Now。
+
+ the key is I expect it to happen。 I expect myself to have a certain state crash tonight or certain port where kind of goes to shit。
+
+If you don't expect it， that's when you start freaking out。🎼And that's what makes it worse。
+
+ And you probably realize it。 say it starts going a little less well and selling your mind。
+
+ It's probably like， oh fuck， maybe the rest of night's gonna to be shit。 Oh fuck， oh fuck。
+
+ and you start kind of panicking。 And that just makes it fucking worse。 So don't panic。
+
+ Exp it and accept it。Expect and accept。Okay。So again。
+
+ at some point tonight and you'll remember this moment here。
+
+ you're going to feel it kind of going down and you'll be like， oh okay， here's the moment， cool。
+
+ I accept it。Okay。And from there， you have to take smart action。Okay。
+
+ the old school analogy for this was a plane when it hit turbulence。 You know。
+
+ you're going to hit turbulence at some point。And what happens is the newbie pilot hits turbulence he freaks out。
+
+ he's like turbulence boom panic。The advanced pilot that hits turbulence， he's like， oh， turbulence。
+
+ he expects it， he accepts it， and then what he's due do he just takes the appropriate action， click。
+
+ click， click while keeping his calm， so that's you。Ebrace the night when it happens， keep your calm。
+
+ and then let's focus on the right click， click， clicks， Okay， so first one is。
+
+Don't get sucked into the feeling。Don't get sucked into it because this is big once you start that starts taking over。
+
+ you become the emotion and this is pretty key we're creatures of habit on a macro level but also on a micro level and you're going to fuel that emotion so in your reality when that hits。
+
+🎼Everything in your mind is gonna to reinforce it。 like the oh fuck， it's hitting me。 Oh my God。
+
+ that's reinforcing it。 There's a saying memory state access dependent。
+
+ What does that mean when you're in a certain state of mind。
+
+ you remember all the other times you're in that same state of mind。
+
+ So when youre have an a estate crash remembering all the other times you're like。
+
+ oh fuck I'm sucking and then you remember the other times you suck like oh， I really suck even more。
+
+ Oh fuck and it's like。It takes you on this downward fucking spiral。
+
+ It even reaches a point where you could even imagine getting in the zone again or what the zone feels like。
+
+ It's like when you're really sick you're like， oh you can't even remember what it feels like to not be sick。
+
+🎼And you get so hooked on it that at some point， it's like。
+
+ you don't even think it's possible to snap out of it And deep down inside emotionally。
+
+ you don't even want to snap out of it。 It's like if you're really mad and then it turns out there's nothing to be mad about。
+
+ You don't just switch。 You're like， but still， It's like you're still hanging onto it。
+
+ So the first one is like， realize the mechanism at play。 And the key is take perspective。
+
+Don't be the emotion。Take a step back and observe it in the third person in a way。 Okay， it's like。
+
+ I compared this in Pimp to a TV show。 Do you guys know friends， the TV show， Okay。
+
+ there's this scene in the bathroom where Ross has these leather pants and's like， Love the powder。
+
+ Do you guys see that scene， He's like trying to put his pants on and he can't And it's like he's in the girl's bathroom at our place and he can't get it because he can't get his pants back up。
+
+Now， for him in the TV show， that's stressful as fuck。 He's freaking the fuck out。
+
+ for you watching it， Are you freaking the fuck out too， Are you on your couch like， oh my God。
+
+ my God。 No， you're just like you're observing a kind of with perspective。 And that's the key here。
+
+You can choose to be the emotion of freaking out a state crash。
+
+ or you can observe yourself in a way having a state crash。 And from that place there。
+
+ suddenly you're no longer identified with it。 and suddenly you can be rational in terms of the decisions you make。
+
+Then you give your character It's like you give Ross the proper instructions for him to snap out versus being caught up in being Ross。
+
+ It's kind of like I rise above the emotion。 It's like I see the emotion。 I'm like， oh。
+
+ that's the emotion。 What can I do to。Fix this。Kind of versus being like， ah。
+
+🎼There's the certain motion。 Yeah， you mean it'll happen in situations in life just in general。
+
+ There's times where we're really upset。 times where we're stressed out be it in game or not。
+
+ And then you can kind of see like， are you the emotion。
+
+ or can you take some perspective and observe the emotion in the you feeling the emotion。 Yeah。
+
+ So it's like， yeah for that。 So it's like， take like 30 seconds。 take I would say 30 okay。
+
+ this is the action time。 So30 seconds to a minute to take that perspective and reer yourself。 yeah。
+
+ yeah， if I'm like， and I feel it' like going。 I'm like， okay， there's something wrong here。
+
+ I see the turbulence。 let's take a little 30 seconds to minute break。 during that 3 minutes break。
+
+ I slow it all down。 if I'm like tense。 I'll loosen up。 And then I'll just look， okay。
+
+ is there pressure。Is there a stress。 And that's when I start taking perspective。
+
+ I don't identify with that。 I'm like， okay， I'm having a stay crash。 Okay， this is happening。 Now。
+
+ what can I do to fix this Big one。 And we talked about this a lot， especially with you， embrace。
+
+Embrace yeah。Because that's resistance is another way that keeps you down。
+
+ It's like you want to be in state， You're not out of state。 Dont your fuck。
+
+ As long as there's that friction， you're fucked。So embrace whatever you're feeling。
+
+ embrace the pressure， embrace the state crash from there。Exaggerate it。
+
+And then start laughing at it。 And from there， keep taking action while doing this。
+
+ trusting that at some point， it'll sneak up on you again。
+
+And I'll give you a story of a guy in London on boot camp。
+
+ okay so this was like one of the more extreme statecraes， so this was a year ago or so。
+
+A guy was on boot camp and it was during the third night of boot camp。Halfway through the night。
+
+ he comes up to me he's like hey， do I need to talk to you。 Okay。
+
+ And he seemed really upset and just really sad。 And I was like， it's kind of weird。
+
+ Like he was having an awesome week。 The previous night， all three of the guys pulled。 So I was like。
+
+ fuck yeah， and he comes up to me like what he takes me the side and he breaks down in tears。 Okay。
+
+ like full out middle of the club breaking down in tears。 I'm like what fuck's wrong。 He's like。
+
+ I lied to you。 I didn't pull last night。😔，So two of the guys pulled and he said he pulled because he wanted to be cool。
+
+ like the two other guys。 And he breaks down like， I'm sorry， fuck I'm so pathetic。
+
+ like full state crash in the middle of the club。Now， this is a little different。
+
+ and you'll experience difference state crashes， be it stress， whatever。
+
+ But this is like a full one where guess what， Does he feel happy。
+
+ Does he feel like broaching fuck no。 Okay， So I tell him it's 30 seconds to a minute。 It's fine。
+
+ Reenter yourself。 Take that perspective。He does that From there。
+
+ I tell him embrace exaggerate laugh。So embrace what you feel and try to exaggerate bit to the point where you start kind of laughing at it and mocking it because when you have that that kind of dissipates and then keep taking action。
+
+So because， again， action， that's the only way you can really affect it。 if it's smart action。
+
+ So I send him up to the first girl and his opener is， hey， I'm extremely sad。 I lied to my friend。
+
+That's his opener。 Okay， And from there， he kind of has to exaggerate it and laugh。 So he goes in。
+
+ He's like， hey， I'm extremely satellite to my friend， and he's feeling really sad。
+
+ So he can't really exaggerate it。 And he doesn't laugh at all。
+
+ And they talks to him for like a minute or so， and he comes back really sad。😔。
+
+And what you'll realize too， is the girls will not really fully reject you if you're， again。
+
+ clear energy。 We saw that clear energy， even sad， clear energy。 they're not gonna fucking for it。
+
+ know unless it's like out of pity， but they won't give them that harsh rejection。 Most of the time。
+
+ So he comes back and' like， okay， Keep it going。 Okay， could you could get it back in two minutes。
+
+ You can get it back in two hours。 but this is the only steps in process you can take。
+
+ sendend them to the next girl He goes in。 That extremely sad to my friend。
+
+🎼B on and he has like a little hint of a smile， but doesn't laugh。 comes back。
+
+ Next girl goes in has a little bit more of a hint of a smile。 Next girl smiles of it。
+
+ Next girl chuckles of it。 Next girl has a little bit of a laugh。 Next girl reject it。😊，Now。
+
+ what happened there。 And this is interesting。 He started feeling a little bit better because he had that little laugh。
+
+ And then him opening， saying， hey， I'm extremely sad， was no longer congruent。
+
+ So he got rejected because of that。 So I send him to the next one。 I'm like。
+
+ embrace what you feel now。 And his new open was， hey， I used to be sad。
+
+ I'm a little bit less sad now， so on and so forth。 And by keeping that process going。😔。
+
+It came back to him。But that's really the key。Take respective of 30 seconds to a minute。
+
+ don't identify with it， don't keep reinforcing it， don't get sucked into it。
+
+View it again from that more neutral state of mind from there， Em。
+
+ exaggerate laugh and just keep taking action， trusting。
+
+ And another key way of viewing it is having blind faith that at some point you'll get it back because you're not going to see it。
+
+ You're not going see the light at the end of the tunnel of you being in the zone when you're in that state。
+
+ So it's literally like believing in a way and like a higher power。
+
+ It's like have blind faith that if you take this action and you follow this process。
+
+ It'll sneak up on you。😊，It take two minutes。 It could take two hours， but it will come。
+
+ and imagine it's the beginning of the night again。
+
+ because that's another thing thatll drag you down。
+
+ And I'm sure you experienced that last night when it happened is scarcity kicked in。
+
+Becauseuse now you're having your estate crash。 but's in the second part of the night。
+
+ So suddenly you're like， oh， there's less time。 Oh， fuck， have to do something now。
+
+ And then like the scarcity。 So imagine it's the beginning of the night again。
+
+ I just arrived abundance of women， abundance of time。 That'll help too。
+
+But that's like a process that I undergo， and the more you do it。
+
+ you'll kind of identify it when it starts going down and you'll just quickly snap out of it。
+
+Versus reaching that lower point where you have to snap out of it。 That's what I do。
+
+ When I see it kind of happening。 I'm like， oh， I'll do something funny to a girl like， oh yeah。
+
+ you know， kind my head right now， stuff I I'll address it fast。
+
+ And instead of going like this throughout the night， you kind of feel like this。 Now， with makeouts。
+
+ I mean， you saw me make out some girls。 Sometimes I do， sometimes I don't。
+
+ But it really just depends on how I feel。Or in how the girl feels in a way， it's not a necessity。
+
+Okay， can you pull a girl without kissing her in the club and fuck her？Yeah， yeah。
+
+ can you pull a girl while kissing her， yeah， it doesn't matter。It's like a high five。 literally。
+
+ If you kiss the girl， what does it do， it reinforces some physical chemistry， Let's just say。
+
+ or connection。 If you don't kiss the girl。 What does it do， Suddenly， she's like。
+
+ why is he not kissing me， You get her chasing difference at the day， too。
+
+They two it just yeah with coffee were just friends， but when he kissed then suddenly， oh。
+
+ he could be my boyfriend， kiss her in the bedroom。And you can kiss her if you want。
+
+ but my main message here is if you want to kiss or go for the kiss， but that's not your goal。
+
+Your goal is to isolate。Very important。 Your goal is not to escalate。 Your goal is to isolate。
+
+If you want to escalate while you're aiming to isolate， that's fine。 It doesn't hurt。
+
+But it's not your main objective。Then once you isolate， then you fucking escalate。
+
+ I'd rather kiss her in a bed where she can then escalate to fucking me。 But I'll do both。 again。
+
+ if I like the girl and send the club and it makes sense， I'll for sure kiss her。 But I'm not like。
+
+ oh， this is one step closer to pulling because I'm kissing her。 You know。
+
+ as beside saw as you saw in the video on Physity。 A kiss is more of an expression of your intent。
+
+ It's on you accomplish anything。 It's not a stepping stone towards sex。
+
+The stepping stone towards sex is the baby step of the logistics and the pulling strategic mindset。
+
+So that should not be your main concern and don't feel like the interactions fucked if you didn't kiss her。
+
+ You're placing the bar too high for what man to women means。Man's woman， if I'm like。
+
+ hey how's it going？That's manwo。It's not this high end bar where she's getting on her knees。
+
+ stuck in your dick。As long as she's acknowledging your existence and she cares， like it's manlewo。
+
+That's the good enough。And that's very important too。
+
+ because that's what takes a lot of pressure off。Good enough。
+
+It doesn't have to be like supersex and also realize that it depends on the girl。Some girls。
+
+ the way they express their interest in you is more visible than other girls。
+
+ Some girls are more shy。 If you tell a joke to 100000 girls， are they all gonna laugh like crazy。
+
+ Some are going laugh。 Some are going smile。 Some are going be like。
+
+ doesn't mean they didn't find it funny。 It's just the way they express it。😊。
+
+So your criteria is like， what's good enough for acknowledging your existence and caring。
+
+That's good enough because she doesn't have to。As long as she's there， for me。
+
+ I view that as if she's sucking my dick。That's the same amount of interest。And that'll help too。
+
+ especially in terms of you， again， it's like， she's not reactive， you're expecting too much。
+
+You need to reassign a new interpretation of her just being like you。🎼Liistening to you。
+
+ that's 10 out of 10。 Keep her there。 Focus on the logistics。
+
+ The goal is not to make her so attractive that she fucks you。 The goal is to get her in a situation。
+
+W she can fuck you。Because that's what most guys try do。
+
+ they try to get her so attracted that they think that at some point she's going to be like。
+
+ let's go。"，You take her o try pulling， hey， let's go to the after party。
+
+See what happens she has friends yeah friends are coming after party。
+
+You can try bringing all your friends there and figure it out。
+
+You can try changing your mind and be like， oh， you know what is my friend， let me just text him。
+
+ Oh he's not answering。Yeah， no， I may go see another friendriguez are going want to and say。
+
+ let go party And then she said， yeah， but I go Well， that's why I just told you， be like， oh。
+
+ let me text my friend， it's at his place actually。明日ま。And then you tell her no。
+
+ oh he's not answering。We're not going， then you go for plan B。I mean。
+
+ you can invite all their friends to your place if you want。
+
+ and then try to isolate her in the bathroom， you can。But it's not ideal。
+
+So just change your mind and get out of it。 She's like， all my friends you're like， yeah。
+
+ it's actually at my friend's place。 Let me text him。 he's not answering。 let's go there later。
+
+ maybe。And then try to find another strategic game plan。
+
+It's the most strategy where I can only pull one gun out of the club like you can try。
+
+But if you can't it's what you do， you go with her。That's how you get out of it。
+
+ and then you just wait and you go with her。And remember， too， a lot of going with her is endurance。
+
+ staying in for a long period of time。 It's kind of playing the long run。
+
+ It's pretty much kind of handy hand what I told him。When you're committing， I don't care if you're。
+
+You're staying in there。You know， try to smile。 You can maybe chat a girl here and there。
+
+ but you're keeping your eye on the fucking girl。 You do not let her out of your sight。
+
+ You'd walk and wait in front of the bathroom for her to come out。
+
+That's what you should do when you' pull， and you commit， that's how serious it is。Okay。
+
+ especially too because girls operate in temporary truths。
+
+ she could mean it in the moment she comes back， but then something could happen and she won't。
+
+That'll happen all the time。 So you're with a girl， She's like， he I'll be all back。
+
+ I promise I like you。 goes the bathroom， runs into me。She's not coming back。
+
+So don't let her out of your sight。Protect it at all costs， stay on it at all cost。
+
+And if you are little needy at times， that's fine because she's looking at the bigger picture of it all Over the whole time we spent together is this guy more sexworth than not。
+
+ if the answer is yes， good。Okay， there's always times of chodiness， it's totally fine。
+
+The girl will fuck you for the big picture， not the small event。So keep that in mind。
+
+ don't let it get to you， you can chill on your phone next to the girl like， oh you know。
+
+ fuck around on the phone， keep your head kind of bopping， keep the fun generating the doing。
+
+You can even open and just casually chat someone， but fucking keep your eye all the time。
+
+And then the other one of few was cutting through the friends。And with that。
+
+ it really comes down to like being the fucking leader。You can't be the follower。
+
+And also being smart in this strategy。 So with her， remember， her v temperature was high。
+
+ Now this here， okay， and this is another interesting one。
+
+The general rule of in the first part of the night， nothing will happen。That's 99% true。
+
+If you see a girl who's down in the first part of the night， who has high bind temperature， pull her。
+
+🎼Don't wait till the second part of the night。 Pull while the iron is hot。
+
+ How would you know that she has You'll sense it。现在是么我。I don't know if she's like super excited。
+
+ like oh like sexual physical kind of like， hey， ready to go， you know。
+
+🎼It started like would probably when you start doing those actions she's really。
+
+ can you can always just test。 That's another one too。 you don't really know test。 like， hey。
+
+ I think my friends have an enough party were like hey， here with me。 she's like， no， no， no。
+
+ then oh， that's not yet。 I never mind anyway，la， b， bla， try again later。 it's always like test。
+
+ And with references， you'll kind get a feeling for it。
+
+ But with her when it's like high bind temperature。
+
+ commit and then start kind of engaging in the pulling process。
+
+ It could take 30 minutes for 40 minutes。 But you got a girl who's ready。
+
+ And her goal is no longer to have a bunch of action or her goal is like I want the climax pretty soon。
+
+Now with her， when you're thinking， okay， to get her out of the club。
+
+ how does it help you to merger her in with all those other girls？It doesn't。
+
+ there's zero purpose to it， it just pulls the interaction back。So don't do that。
+
+ Don't make things more complicated than they need B。 Okay， you do that。 You're pretty much。
+
+ especially the way you merge like good。 And then you stand on the sideline。 Never do that。
+
+ And this is something you should have noticed with me。 When I merge。
+
+ I'm in control of the interaction at all time。 I don't let the girls take over。Okay， yeah。
+
+ I'm leading all this time。 I'll let them chat at times。 I'm not like， oh， never talk。
+
+ but notice I'm now like， he here。🎼I never do that Oh no， you keep it going。 It's not a break。
+
+ It doesn't give you a timeout card。 It's like words it's like yeah， it's my friends， It's my friend。
+
+ Hey， say hi her。 So this is this girl。 Okay， what's your name。 Oh cool。 Hey， up。
+
+ I'm so fucking part of it。 I'm still the fucking leader there。I'm still the main guy。Okay。
+
+ you're not like， here。Then you're done， and then of course， good luck jumping back in。Okay。
+
+ so it's like， don't let yourself get in that position in the first place and how do you get out of it。
+
+ interrupt。Be loud and youre up with a huge smile。 Like， hey， so anyway， So anyway， English， English。
+
+ English， He， cool， suit with huge s。 lead， don't chase。 That should be your mantra leading。
+
+ not chasing。 For example， if a girl's looking away， you can say， hey， look at me。😊。
+
+And it could be chacy or needy if you say it in a chasing way。 you can go， look at me。 That's bad。
+
+ What if you say it in a leading way。 Look at me with a bit of a smile。
+
+Positively like positive leading versus chasing， things like that。Positive leading， not chasing。
+
+So whatever it is， like， hey， anyway。Inters。

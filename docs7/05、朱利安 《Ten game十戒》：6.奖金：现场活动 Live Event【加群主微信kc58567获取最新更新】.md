@@ -1,0 +1,1860 @@
+# 05、朱利安 《Ten game十戒》：6.奖金：现场活动 Live Event【加群主微信kc58567获取最新更新】
+
+Being congruent。 This is something that you hear。 and it'll just fuck a lot of guys up because they don't know what that means where they misinterpreted and they can't get the nuances behind it。
+
+ So be congruent to who you are。 That's basically。Be new right now。Now， what about？
+
+Being congruent and growing and changing。And being better and more sexworth and getting more girls if your guys very quiet。
+
+The guys very introverted， being congruent， not going fucking help you。
+
+So how do you kind of reconcile that？Okay， and the whole idea with Ten0 game is that who you are right now。
+
+Is fake。That's the idea who you are right now， when I started out in game， I was extremely shy。
+
+ extremely introverted， couldn't fucking talk to anyone like I'd get fucking stifled at a family meal。
+
+Like growing up as a kid， I was stifled at the fucking dinner table that's that was me that there。
+
+ that personality， if I was like be congruent and I'm like trying to make that work。
+
+ it would never fucking work So what I had to realize is that that person who I was that was me being fake。
+
+😡，Except that I've been doing that fake shit for so fucking long， I've convinced myself it's real。
+
+And it's me when it's not。Okay， so even with this concept like being sexual。This there。
+
+ like like if you talk to a girl， you find attractive。It is naturally going to be sexual。
+
+ You're naturally going to show intent。 It's not something you need to force yourself to do。
+
+Every time you talk to a girl and say you're put into the friend zone and you're pissed about it。
+
+You're being fake。Okay， and this is key， it's like it's not about you， you know。
+
+ acting like a friend to friend and then trying to do something to be sexual。
+
+ it's about stop faking the friend to friendship， get rid of this friend to friend front that you've put on because naturally you are sexual。
+
+And it is going to feel extremely weird。You know it's like that fake it till you make it in reality it act real until you remind yourself of what real is and gets rid of the shit that's blocking from feeling that so it is attacking it from two angles okay half of it is。
+
+Getting rid of what's blocking you from beingual because there's always a fucking fear somewhere if you're not clear in your intent。
+
+ there is fear what where's the fucking fear， identify it。
+
+ get rid of that and at the same time you want to be hitting it from the other angle which is acting as if like the fake it or act real until you make it and that's when you hear for example。
+
+ laser eye contact breaking a personalityity， physicality， statements of intent shit like I like you。
+
+😡，She're like， fuck， you know， you't， you don't want to do what you don't want to know what I'd do to you later or something like that。
+
+ or if we were alone。 You don't know I want tona know the shit that I would do to you stuff that is kind of fucking weird。
+
+ and it feels like you're faking it。 But in reality， by doing that。
+
+ you kind of remind yourself of what it feels like to be real。
+
+ And it gives you a reference that nothing battle happen。 So in a way。
+
+ even getting that reference gets rid of that fear to a certain extent too。
+
+ So you want to be hitting it from those two angles for everything。
+
+ Okay it's like being man to woman isn't something you do， it's like who you naturally are。
+
+ but you just fucking forgotten it。And you're telling yourself。
+
+ oh who I naturally am is friend to friend， but that's not true。
+
+ that's the fake fronts you've convinced yourself is real。Okay， and this is a lot of fucking game。
+
+ by the way， you know， the same with being uns stifled， it's like naturally。
+
+If you feel completely at ease， completely comfortable。
+
+ you'd probably be a lot fucking louder than when you're out talking to a hot girl。Right。
+
+You would choose to act and talk the way you're doing right now with like a really hot girl you're kind of intimidated by。
+
+So the real you， it's like that quiet you， that's fake。But you've been doing it for so fucking long。
+
+Youve convinced yourself， again， that's your default。 Like I'm just a quiet guy。
+
+ I'm just an introverted guy。 I'm just the a guy who kind of holds back。 That's not true。 It's like。
+
+ what's blocking you and then acting as if。Until you remind yourself what it actually feels like。
+
+Okay， so don't let this congruent thing block you at all and don't aim for perfection either。
+
+You know， it's like there are times where you're not going to be congruent。
+
+ there are still times where I'm not congruent， you know。
+
+ we were talking about this with you before every time you're outside of your comfort zone。
+
+ most likely you're not going to be congruent。Or you're going to be taking value。It's another one。
+
+ It's like， literally， we were just talking about this。 He's like， you know。
+
+ there was this really fucking hot girl and I was like， oh。
+
+ I don't want to open because I'm going to be taking value。
+
+ I just know I'm going to be taking value in that vibe because she's way too hot。I mean， yeah。
+
+ if it's a girl like， it's outside of your comfort zone。
+
+ you have to go through that initial phase of kind of fucking up taking value until you kind of get used to it。
+
+ So you have to go through different phases of taking value。 Don't use that as an excuse。 Like。
+
+ I never want to take value。 So I won't grow at all。😡，You know。
+
+ and it's really not about being perfect okay all these logs， I fuck them up all the time。
+
+ I still like break them， I still fuck up sets and vibes and take value and get high up validation and you know。
+
+ get rejected and get piss sometimes， but a lot less than before。You know， and this is big to too。
+
+ it's like really demystifying game game is not this crazy shit， all of you guys。
+
+Have run game just as good as me。Literally， now， depending how new you are。
+
+ you might have had like a few seconds or maybe a minute just as good as me。
+
+But you've all had it just as good as me。And that too， it's like learning how to realize that。
+
+ it's like learning how to realize what good game is and letting go of these unrealistic expectations。
+
+ Okay， biggest one I see is hooking， hooking a set， every fucking boot camp。
+
+Especially at the end of night one。Student comes up is' like， hey， man。
+
+ I'm just not fucking hooking these sets， that's what I need to work on。
+
+Who here like actually is trying to work on hooking a set would like to know how to hook a set better。
+
+Yeah， it's like fuck， everyone's like， yeah。But most likely。
+
+ what you're not realizing is that 70 to 80% of the girls you're talking to right now you're already hooking them。
+
+谢谢。I I'm like， I told that soon I'm Mike dude， almost all the girls you talked to tonight。
+
+ you hooked him。He's like， what？Because what was happening。
+
+ he was hooking those sets and remember this like the hook point usually happens like it happens a lot like a second in。
+
+Literally a second in， you're like， hey， did， do， and she's like。Like that。 Okay。
+
+ it's not this crazy thing。 A girl being hooked is not her getting on her knees and blowing you in a fucking club。
+
+ A girl being hooked is just like。😡，You know， listening to you and kind of caring。
+
+ kind of being engaged by who you are， that's hooking a set。It's the difference between me。
+
+Showing up here。 and it's been like。So。Yeah， we're going to talk about。Hooking。Versus。
+
+So we're going to talk about hooking。Just that the first one， I'm not hooked to you guys。
+
+ the second one I'm hooked just that if you go up to girl， she's like， yeah， yeah， she's not hooked。
+
+ but if she's like。Even she's not even talking， like some girls are just shy，You've hooked。
+
+And what's fucking you up， it's not the fact that you haven't hooked。
+
+ it's the fact that you didn't realize that you hooked and you actings if you haven't hooked。😡。
+
+That's the rejection。Like 80% of dudes， if I just told them， slow it down while out。
+
+ like you're there， you've made it， your interactions would explode。
+
+ It's not about doing the crazier thing or the more sexual thing。
+
+ It's about acting accordingly to having hooked。Directly jumping to the vibing stage。
+
+That's how you solve it and that's like a lot of these fucking sticking points is like these little nuances that you just。
+
+Again， it's tough to grasp， okay， but this unrealistic view of pickup is big。
+
+ so redefining the hook point， redefining what a good set is like that too just vibing is pretty much just fucking like the way you chat to a fucking friend。
+
+That's viing。YouAnd then you're like， well， the vibeing is not as good as what Julian would do。
+
+ it's like， no， it's like that's vibeing， It's like that's what game is。Realize it。
+
+Because what's going to happen if you don't realize that's what game is， you're going to be vibing。
+
+ you're like， oh， this is boring the sucks， she's not going like me。
+
+ this is not what an instructor would do and either sell sabotage or eject。
+
+But it's fucking good enough， you don't have to do this crazy shit。You know。
+
+ and that is as little sign of what makes game fucking cool， it's the viing part of it。You know。
+
+ I'm sure you've all been on a date with a girl where you're just chilling。
+
+ maybe having a drink and just like enjoying each other's company just for the sake of it。No。
+
+It's pretty fucking awesome that's game， that should be every fucking night you go out it's just like enjoying the girls coming for the sake of it it's like you just jump to that stage。
+
+Versus doing， doing， doing， doing， doing， doing。Now， of course。
+
+ then you have to move it forward and that too， moving it forward or escalating。
+
+It's not something that you do， it's something that should naturally happen。Except again。
+
+ it's like you're holding back， you're being fake， and then you're trying to compensate by doing it。
+
+An interaction naturally blossoms into sex。For real。
+
+ the reason it doesn't is because you freak out somewhere。And then you stagnate。
+
+What's the most common stagnation of an interaction getting stuck on self amusement？You open。
+
+ it goes well， you vibe it a little flirtatious， and then you just kind of keep the vibe there。
+
+And the girl will like it for a bit。 It's still win。
+
+ win for a bit until she wants it to keep going towards sex。 It's like， how much fun can we have。
+
+ How can we have more fun， more fun， more fun， eventually it's sex。😊，But you're like， no。
+
+ this is the most one we can have。 She's like， what about sex， No， we're staying here。
+
+She'll tolerate a bit is he going to keep it going and then you're like， no。
+
+ we're staying here and then she's like starts losing attraction。
+
+You guys ever get that like the windows open and you just don't take it and she loses attraction。
+
+And then you think， oh， I got to be doing more， it's like， no。
+
+ you got to just stop getting in your own fucking way， stop stagnating it。
+
+That's the way you escalate in a way， and I had this like with well maybe you realize by the way。
+
+ fucking。Years ago， like my first dates， I would always be too scared to kiss him。
+
+And every fucking time， I had to reach that point where they like， is he going to kiss me？
+
+And I wouldn't， and they tolerated for 20 minutes。Be like， fuckuck you。
+
+where you're talking to a girl， and then at the end， you're like， oh， can I have your number？
+
+Why do you think you have a lot of flakes， she's like， fuck， this guy's not playing to win。
+
+It's win lose with him。That's a lot of flakes， it's like if you're getting numbers when there's the possibility of。
+
+ again， letting that interaction blossom into sex， you're fucking her over。
+
+And you're lowering your value。OkayAnd this is why in the second part of that fucking night。
+
+ no fucking numbers。Make it that rule， it's like split the night into part one。
+
+ you're allowed to get numbers because oftentimes just too early。Bying temperature is not there yet。
+
+ it's not a win win， but part two she's looking for that guy she's going to fuck。
+
+You don't get her number， like if you go for the number， it's like you're not playing to win。
+
+ it's win lose。Or I mean， lose， lose technically， a lot of this stuff。It's not you having to do。
+
+ it's you not doing the opposite， it's you not getting in your own way， that's how you get there。😡。
+
+Okay， for example， pulling， here's another one。If you really want to fucking know how to pull。
+
+ it's not about doing something for the pull， it's just about not leaving the interaction。
+
+If you just stop leaving the interaction。And you stop stagnating that buildup。
+
+Your results will increase。For real。Like you've eed out of so many fucking sets you probably could have pulled。
+
+And that's too， it' kind of embracing the fact that's a little messy。
+
+Somehow we have this image of this interaction that just goes like amazingly w and you're one on one with a girl and at the end you pull。
+
+And then you're talking to the girls， she's like， well， I'm going to go talk to my friends。
+
+And you eject。That is not a reason to eject ever。Like there's， you know， or oh。
+
+ I'm going to go over here， you eject， I'm going to go to the bar get a drink， get some water。
+
+ you eject， oh I'm going home， you eject。That's what's fuckinging you。
+
+ it's not that you need to do something extra to pull， it's just you need to stop ejecting。
+
+If the girl's going home， you should be ecstatic。You do not want to keep her in the club。
+
+ nothing or very rarely will it happen in the club， nothing will happen in the club。
+
+You don't want to keep the girl where you open her， That's another one girls walking try to like， no。
+
+ don't go there， stay here， why what's going to happen here？
+
+There's more chances of fucking her anywhere else， but here。You know。
+
+Every time a girl's going home I'm happy， every time a girl's even going to meet her friends。
+
+ I'm happy because it's getting us closer to that climax， it's also very fucking rare。
+
+ you're going to be pulling a girl without having said hi to her friends or without a friends somewhat approving of you。
+
+😡，Because if she's leaving， they're friends like， where'd she go， oh with that dude。
+
+You want to win the friends over。That doesn't mean like go out of your way。
+
+ like spend the whole night with some friends， like depends on the set。
+
+ but you better learn to say hi to the friends。That's usually like within the first。Two。
+
+ three sentences， I even ask her， who are you here with， you want to know who our friends are。Okay。
+
+Another funny one too is by the way， for logistics。
+
+We think logistics is something we have to proactively do， it's like a technique， but in reality。
+
+ logistics naturally happen if you're playing to win。If you are thinking about polling。
+
+ the first thing you're going to do is find out what the logistics are。
+
+Because that's really the logistics， you're like memorizing like the five questions， for example。
+
+ it's like， oh， who are you here with， whatever do you live in， how are you going home。
+
+ do you have roommates， what are you doing later tonight tomorrow。
+
+ you can memorize that or just ask yourself if suddenly my ghost appeared while out and like told or like a hologram or something and I'm like。
+
+How would you pull this girl？To answer that question， what do you need to know？That's the logistics。
+
+So if you're thinking about pulling， if you're thinking about getting the girl。
+
+ you would naturally be getting all the details to know how to do that。
+
+And interactions like where you take them？Again， where the win is。
+
+ that all depends on the logistics and then the interaction will be very different depending on what that win is the big traps I see is guys who just get either hooked on girlfriends or hooked on no girlfriends like。
+
+Be willing to go for the girlfriend too， you'll get just as much value out of a fucking girlfriend than game if you're a guy who's just purely doing game。
+
+ who's never had like a long term relationship。You're not like you're not。
+
+ there's so much more you could like become or learn about yourself that would also help you in game。
+
+Because game it's like you get a fuckedton in terms of like you know， a ton of references。
+
+ social skills， big time， you know you talk to a lot of people， you grow a ton。
+
+ there's social pressure， it's crazy， but it's all like these initial interactions。You know。
+
+ and you can still get girls without kind of diving deep within yourself and kind of dealing with different issues that you have when you're with a fucking girlfriend。
+
+ especially your girls say you live with her。That shitll fucking come out fast and you will have to deal with it。
+
+ you know， it's like everyone's demons just fucking comes out like not immediately。
+
+ there's always like the first three to six months where everyone holds it in， you hold it in。
+
+ she holds it in it's fucking like the honeymoon phase until she's like I got this guy。
+
+And there's like phases like it goes from like the first time you say so I got this guy then she starts letting it out and then actually you start letting it out too then there's the point where you move in and then fuck next level of letting shit out and in terms like a growth experience like having someone there。
+
+That forces you to continuously confront that shit。
+
+ that's what'll like really help you also grow because otherwise like there's no real situation why would you confront it otherwise like that really makes you confront it if you want that relationship to work so there is value out of both but what I will say to you is like with a girlfriend make sure make sure like this is the best thing you can do make sure it's a girl that really。
+
+ really really likes you for you and learn how to put yourself out there extremely congruently。
+
+So that's again， the other advantage of not being fake。
+
+ it's like if you put on that front where you try to be a friend of friend or you put on that front where you're talking about shit you're not into just to try to get the girl。
+
+That relationship will kill you， you know， it'll be fucking paranoia， it'll be hell。
+
+ you're walking on eggshells because if she likes the front， you'll always be afraid of like。
+
+ well what if she discovers the real me？So again pickup and girlfriends like relationships hand in hand。
+
+ the value you get out of every relationship will help pick up， pick up， learning how to be real。
+
+ going， like even learning what type of girl you like， like you'll learn that through game。
+
+You know when I started out。Like my girlfriend now versus like the girl。
+
+If you asked me 10 years ago getting into this， like what type of ideal girl completely fucking different？
+
+Clearlyle different why because in the beginning， you don't really have any clue。 Like I got into。
+
+ I never had a girlfriend before that。 like a three month relationship when I was 15。 I was it。
+
+ then I found out about game。 I was like holy fuck。 And I was like， man， I want this。
+
+ I want this in a girl。 I want this in a girl。 But if you actually think about it。
+
+ it's just a projection of。In a way who you are， what you think you want or what society society thinks you want or what would impress your friends。
+
+You know， and if you actually got that girl， you probably hate it。You know。
+
+ it's like a common one too is like， I just want those fucking like playmates。And actually。
+
+ a lot of them are really fucking cool， but a lot of them too， are horrible， horrible。You know。
+
+ and you're like， man， I don't care if she's horrible。 If I just got the playmate。 Like。
+
+ you don't even know what you want， you know， So going through the trial and error。
+
+ too of like interacting with all these fucking girls。Even on a shorter like the initial interaction。
+
+ you'll start getting a feel for the type of girl you kind of connect with。
+
+ resonate with where it's just a lot more flowy because we all have that something just a little bit more chemistry with certain fucking girls。
+
+You know， now it kind of gives you a better sense like， oh， you know。
+
+ if I'm getting in a relationship and someone I'm going to spend like a lot of time with。
+
+ I wanted to be this type of girl and you discover that through game。
+
+You also discover failed relationships through game。
+
+You know and every relationship kind of builds to the next one。
+
+ but the biggest thing is know you want。And that's the cool thing too。
+
+ is when you know what you fucking want， it's like those are the relationships they'll fucking last too。
+
+You know， those are relationships you'll be happy in because you're going in you're being real and you learn that through game and you won't have to feel paranoid in your relationship。
+
+ it's still your sanctuary， like with your girlfriend。
+
+ you should feel just as comfortable with her as alone like if you're sitting。
+
+ you know your computer。Like say you go out and let's paint the worst picture， you go out。
+
+ you get drunk， you wake up the next day you're hungover in your underwear on your computer。
+
+ eating fucking junk food feeling like shit， smelling like shit， looking like shit。
+
+ your place is trashed， if your ideal 10 right now， girlfriend walked in。
+
+ you should feel just as comfortable as being by yourself。If not， your relationship will be held。
+
+Okay， so there's that and then it's also kind of thinking about it when you do get a girlfriend thing about the long term versus the short term and this will also。
+
+In a way， it'll kind of get you reconsidering what you think value is because you can go out and。
+
+ you know， you meet this。This 10 in a club， but again。
+
+ it's like a year down the road because she goes out so much these fucking clubs。
+
+ she will no longer be a 10。So if you commit to these girls in the long run， I mean， just look， man。
+
+ it's like a lot of these girls， I said this at summit。
+
+ it's like a lot of the girls that dated fucking like six years ago。
+
+ a lot of girls I fuck six years ago， perfect tense right now just complete trash。Complete trash。
+
+ like a fucking like four maybe trashed。You know， God， there was there was one too。
+
+ it was like it was a miss， I won't say the state， but it was like one of the state， okay。
+
+ who won the fucking thing？This girl， I saw a picture her recently like just fucked out of her mind like that like the black like white trash。
+
+ The attorneys like these white like imagine like a white trash girl like woman that lives in like the swamps who just like fuck skin acne popping it just destroyed just by this unhealthy lifestyle。
+
+ Like that's the future of a lot of the tens you'll see out。You know。
+
+ now don't get paranoid by this too。Again， they're awesome to enjoy joy in the short term and you are who you surround yourself with。
+
+ so that's who when you're looking for a girlfriend， don't look for the ideal either。
+
+ it's like look for the raw material you know it's like you'll kind of both evolve a time and you know I'd say think long term and maybe commit to one who's a little bit more health conscious。
+
+ let's just say。And make sure she also has a purpose。
+
+That's the biggest thing too I see if you guys read David data， the way of the Super Man。
+
+ A fucking book， what's one of the ideas is a guy， your path and purpose can't be your girl if it's your girl。
+
+ your stays can be fluctuating so much like you're not going to be that rock that she needs okay you need something else other than your girl。
+
+So you hear that and you're like， okay， and then what he says too is that her like her path and purpose should be you。
+
+ she kind of like you're the thing she can ground herself on。
+
+ that's what she lives where she kind of enjoys that ride that is you。
+
+And it's true to a certain extent， but she still needs her own fucking thing。
+
+ she still needs her own life， something she's pursuing a can't 100% of the time to you。
+
+And you'll see that relationships just cruumbled because of this because you hear this concept and they get all paranoid。
+
+ You're like I'm doing my thing。 you follow me on my thing like full on like control freak。
+
+ and it's literally like a kid who rebels after a while She may be down for it for a bit like you bring into your world。
+
+ but if all she has is your world， eventually she'll want something of her own you know it's like something that she's got going that kind of gives her purpose too versus feeling like this fucking like smothered kid。
+
+So don't like be this fucking control freak either， don't get paranoid if she has a fucking purpose。
+
+ it's totally fine。😡，I mean， yeah， it's like understand too。
+
+ that after a while being with the same fucking like being with a girlfriend。
+
+ being with the same girl。That initial validation high。
+
+ anything that's validation will just melt away。And you'll be left with the real person。
+
+ So the more you can kind of see past that initially， one it'll help you with game。
+
+ but two'll help you make that decision。You know， it's like if you just do it， for example。
+
+ for the looks of her when she's all doed up。No matter how hot the fucking girl six months in。
+
+She's just a fucking human being。It'd be the same as like fucking at 10 is fucking at 6。
+
+You just don't give it like you're over it。You still love her， silver her it looks。
+
+ but it's like that's not what turns you want or gets you that high。
+
+You probably even realize in the pickup before sex after sex。
+
+ is a girl as hot and glamorous after sex？No， because you' like oh， fuck or whatever。
+
+ for value drops。You know， the more like not the value it's like the more that illusion you kind of sight yourself out to like believe in fades away and you're left with who she actually is So think it's like who is this person like who is this person for real。
+
+ and you better be able to see yourself being like really fucking like best friends with her because that's really what it is it's like you better be are you gonna be best friends with a lot of the girls you sleep with like think personality。
+
+ get sex out of the way， get looks out of the way just personality。
+
+ could you guys just see each other hanging out all the time。The answer is no。
+
+ don't make that grow your girlfriend。And again， it's not black and white。 People change with time。
+
+ They evolve with time to another tough one， by the way， through relationships is。Because， I mean。
+
+ here we're on this path of like。Growth okay， if she does not grow alongside you。
+
+ eventually there's going to be a mismatch and the relationship will fail。
+
+And it's not necessarily because of you like doing anything wrong， it's just that。
+
+You just don't connect anymore。Because you do attract people who have the same fucking level of self esteem as you do right now。
+
+That doesn't mean that they're the same person as you， they could be total opposites。Okay。
+
+ like funny like my girlfriend's like opposite personality， she's like nices as sweetest。
+
+ like not loud mouth or anything like that at all， like total opposite of meal of cras and shitd。
+
+ but selfeststeem wise at the same level。Okay， and again， you start growing。
+
+If she doesn't grow alongside you， if she doesn't commit to that expansion as well。
+
+ bang at some point， it'll just break same with like pickup like your friends back in the day。
+
+ you start getting better。First it's okay， you go a little too much。
+
+ you just don't connect anymore or as much as before。
+
+ maybe in different contexts like you can hang out a little bit here and there。
+
+ but eventually it's like you have to kind of break off and meet new people on that same level So find someone who's committed to that growth too and if that person isn't it's not anything you did wrong。
+
+ it's like enjoy it I mean while it lasts， but' that plays a huge part in relationships。Yeah。
+
+ I've been dating a girl like for a couple weeks who， you know， you know。
+
+ she seems really cool like saying everything you talk on it's just like she kept poping into my mind and stuff like that。
+
+Maybe there's that gap like coming， whatever just。Well that's like a side story but going out and doing game with like my friends。
+
+ I feel like really guilty because like she's like。
+
+ you know she's super cool and I really like hanging out with her like like fucking Po adventures and stuff like that you know me like we're like at that level okay you know what is it like Pokemon right it's at the Pokemon level of the relationship I like that？
+
+Okay， so yeah， she's really cool。 but like I mean actually just totally random side note like I actually love that because again。
+
+ it's like that girl too like that 10 or whatever you want to date is like you should be able to have like those nerdy little quirky things together。
+
+ Okay， it's like if like even here in Vegas like those like bottle service girls like fuck。
+
+ I really want her。 it's like with that girl， you better be able to have that quirky shit。😊，Okay。
+
+ in reality， it's like that too is like realizing we're all fucking human。
+
+ we all love this guilty like an nerdy little shit。 you know。
+
+ it's like that10 she'll laugh at dumb shit。 she's human。
+
+ she's not like upscale 10 and you have to become that guy who kind of just plays into that That's not she's looking for you know but yeah keep going Yeah just going out with my friends and stuff I got talking to other girls I feel like held back from playing to win and also you know I feel like the girls can even sense it to because I'll go in and wing those girls can like my interpretation is they can feel that I'm not I'm not gonna commit like I'm not take。
+
+What I'd say in that scenario there， it really comes down to being clear in terms of what you want and then managing expectations So what does that mean it' like。
+
+It's very easy once you start you know getting success in this to kind of like like that's like a success problem you're like。
+
+ oh shit， like all these girl like that'll fuck you too。
+
+ so it's like being very clear what do you want out of this during this period of time if it is an exclusive girl where you're not going to go game for example。
+
+ and just stay with her。Let's like be honest with yourself and then just commit to that and that's totally fine too you know because that'll fuck you in a relationship where there's that need to still go out and constantly gain。
+
+ you know it's like，You should still be growing， but game isn't the only area where you grow。Okay。
+
+ another easy little tweak to that， though， by the way， because， I mean。
+
+ you grow massively in game is。You could have that exclusive relationship。
+
+ but just not cheated on her。And you can just tell her hey I'm going out to game is a form of growth。
+
+ I'm not going to cheat on you， but that's what's up you know Owen did this for a while where he'd literally go out game。
+
+ pull these girls to the point where they're naked on the bed ready to fuck and they'd be like oh you know listen。
+
+You know，Like you can go through the same type of process。
+
+Or just going like socializing or putting yourself in different situations， but again。
+
+ you can grow in your work everywhere， like game isn't the only place and ideally in all these places you should be growing but。
+
+Let her know like know what you want and let her know so if you let for example your girlfriend know or like the girl you like you know on the Poky dates just be like hey you know this is what's up now you won't feel guilty what's keeping you like guilty is the mismanagement of expectations and not really being clear and what you want and what's up。
+
+You know so either committed and stick to that or tell her you're going to go game。
+
+ stick to that or tell her you're fucking open to it， it's like。
+
+ hey I'm not looking for a super serious girl now， maybe in the future I could see this happening。
+
+ but for now I still want to go out game experience these girls kind of grow as a consequence of it。
+
+ are you down or not？And some girls will not be down。
+
+But those are the girls who don't even want them to be down too it's like that should not be your intent。
+
+ your intent should not be to try to like if this girls looking for a committed relationship and you're not even though you get together it's like you don't want to keep her there hoping for it and she doesn't want to be with you either it's like you should both wish the best for each other and kind of hope to go your own way it's like find that girl who will be down you know and there is that girl who's down by the way if you guys I don't know if Derek talked about this at the summit。
+
+Like that like cult or something about people fucking animals up in Washington。
+
+Do guys ever hear that one。 Do you hear it， literally' like。😊。
+
+He basically uses it to illustrate the point that no matter who you are。
+
+ there is a girl who can like you for you。 Okay， and basically， I don't know the details of it。
+
+ but there's like this this cult thing or there was this cult thing up in like Washington or maybe Portland or something where this guy would like go on Craigslist and like recruit other people to go up with him to this farm and like get fucked by horses and cows or bulls and shit like that。
+
+And。Eventually， I think one person， like， like it e ripped and that person died or something。
+
+ And then it got in the news。 and then it got shut down。 But But the point being。
+
+ if that dude can find people on Craigslist to go get fucked by animals。
+
+You can find a girl who will be like you no matter who you are， what you're into。 You know。
+
+ there is't that girl out there。😊，啊。So， something to keep in mind， like。
+
+ especially after a break upup， you're like， I'll never find a girl like her again。 You will。
+
+ if he can， you will。So I'd say yeah， that's more in terms of management of expectations。
+
+ and you'll be surprised too， it's like how much girls will be cool about as long as you let them know。
+
+And with that， here's the other catch and your situation where it can be a little tough is you got to let them know upfront immediately。
+
+Because that's where shit'll kind of fuck up。It's a lot easier。 And most of the time。
+
+ you can go from less exclusive to exclusive， like less investment to more investment。
+
+ but rarely the other way around。So it's a lot easier to go from fuck buddy to girlfriend。
+
+ pretty much all your fuck buddies unless it's a girl who just fucking loves that shit。😡。
+
+80% to 90% of them。 if you say， hey， do you want to be boyfriend girlfriend exclusive， Don。
+
+ That's what they they they kind of want。 They're totally done。 Okay， However。
+
+ how many girlfriends want to go from girlfriend exclusive to fuck buddy。Very few， you know。
+
+ this is actually very another interesting dynamic with relationships is be careful of the different things you do or habits in terms of investments because you can't go back so say you with your girlfriend and you start texting every fucking day。
+
+You can't go back。But if you start say， hey， just casually texting every few days。
+
+ say when you're traveling， like， I mean， I say this just some references like if I would just text every few days like。
+
+ oh， this is normal， totally fine。 But then if I started texting more。Then I'm stuck。
+
+ I have to be texting more if' not， she's like， what the fuck's wrong。You know。
+
+ so it's those little things。But what was was last thing I saying， oh。
+
+ I let her know immediately up front。 So it's like， if not。
+
+What you may have to do is some girls will still be down going from girlfriend to F buddies。
+
+ or you guys will break up for a bit and then come back together on new terms。
+
+ but it's always discussed the terms。know， and that too， in terms like a healthy relationship。
+
+ its like disgust in terms is what helps a lot and is corny as it sounds。
+
+Even in terms like you moving up， we're not just like do these like a fucking business。
+
+ like a business meeting， do like a relationship meeting， super super corny and lame。
+
+ but you gotta do it because otherwise the thing that'll kill your relationship is resentment slowly like building up。
+
+Suddenly you won't see it ever first it like a little fucking thing slowly building up。
+
+ that's why if a girl ever like you say you mismanaged expectations and she catches you cheating。
+
+ you're done。You can fix it， you can flip it around but that fucking resentment will be there。
+
+ you may even stay together till the day you fucking die， but your relationship will not be good。
+
+She may try as soon as resentment kicks in。You're done。So。Beware of that。
+
+Contradictions are compliment contradictctionions they complement each other okay it's like it all depends on the context So some for most guys when they're out。
+
+ they just never fucking feel good and it's like them doing it to themselves it's like they're always just doing shit that compromises themselves seem compromise who they are just to try to feel good it's like doing the opposite So for them it's like start with that and then do it but then there's the other context where it's like use an excuse Oh there's approach anxiety I don't feel good I'm not approaching。
+
+Oh， I talk to a girl that's like， oh maybe like out of my league or maybe again it's like you're not getting those initial reactions you're hoping to get and then your mind interprets as like she doesn't like me you know so then it's like gun the head。
+
+ be honest and going through those momentary phases of growth too where you you feel incongruent and you don't feel good but then overall you know it's like where you want to go。
+
+And then it's also like defining feeling good， is it comfortable or feeling good growing through the discomfort？
+
+Nuanced， upon nuance， upon nuance， upon nuance， yeah。Yes。
+
+ so if you have the time to really dive into。You' starting so what will be。
+
+The right amount of time and effort。In。You go off the ministry。这里面。Depends on the person。
+
+Depends on you。Go out as much， try， try， go out as much as you can see what happens。
+
+You could literally like fucking Sam back in the day， he went out almost 24/7。
+
+ you'd go out day game like all day and go out all night all night。
+
+And as he's pulling girls back in his car be blasting RD audio from the videos？
+
+He'd fall asleep like that's how extreme he went， like literally he'd wake up for like six months straight。
+
+ that's all he did in Australia， wake up， day game all day。
+
+Go out at night to the fucking club all night， drive like pull the girl， drive back to his place。
+
+ listening to fucking audio， fall asleep with his headphones listening to the audio as he's sleeping。
+
+ wakes up， games， nonstop。Six months。Like extreme。You know， Sam。对。Yeah。
+
+ I know he went all out like six months straight in Australia like that now Sydney Yeah for him that worked for me being honest。
+
+ I could not do that I'd like reach out where I'm just burning out and my time out wouldn't even be like productive I need a lot more time too just the way my mind works to reflect on shit for it to sink in so。
+
+It depends on you， man， it's like as long as you're going out and you kind of feel like you're really sucking the value out of that time out。
+
+ yeah， like for some dudes， it's better even on a night out dude to like go out two hours and go fucking hard then go out you know four hours and the whole time you're kind of in this like groggy state and you're not taking in any fucking references you know sometimes it's better to stay home and think about the references and let that sink in then go out and take more action。
+
+So it's like two， it's a very nuanced。Question slash answer but I would say just keep those things in mind it's like try it out if you feel like you're burning out tired and you're not taking it in that's when it's time to rest at the same time too you can do things to help recuperate so for example。
+
+ see you're going out every day。You can still find a way to like take in a lot of fucking value going out every day。
+
+ say if you also meditate every day。So take that period of like deep relaxation， recentered。
+
+ let the shit come in， and then go hard again。Then on the more macro level。
+
+ sometimes you'll go out like for a few weeks， maybe you'll take a week off。You。
+
+ and also you may want to find something like a path or purpose， let's just say。
+
+ other than just pickup， but at the same time， just going just pickup helps too。
+
+It's like you have to go in and out of it I've。Spprints of periods where that's all I fucking did too just pick up。
+
+ pick up， pick up， pick up， pick up， non stopping without those periods。
+
+ I wouldn't have reached a high level。You know， yeah。
+
+ since it's like one of those questions it's similar to the question people ask about like working out。
+
+ it's like， how do you get fucking lean sometimes？It's like fasting and like working out big time。
+
+ some other time it's like eating more actually。Subttleties like that， by the way。
+
+ this also applies to wallouts， you don't just get value from how much time you spend out or how many opens you do。
+
+Huge， okay， I get this every boot camp as well towards the end of the night。I'm like， okay。
+
+ commit to this girl， I want a fucking long set， I tell oh my good I want a long set because without long set it's like。
+
+ good luck and they're like， no， no， I want to do more opens。
+
+All the time I want to do more opens thinking that， say there's an hour left in the club。
+
+ you'd get more value talking to a lot more girls than having that long set。And again。
+
+ it's understanding the value of like， you know， it's like。Was it with versus depth it's like。
+
+ are you really going to get more value and a bunch of more opens at the end of the night or would you get more value having this long set。
+
+ having new sticking points pop out， new things to work on that we can then break down and take further？
+
+Okay， so not just quantity， quality， went out， it's not just how much time you spend out。
+
+ it's how valuable is that time out。はい。第週？Sa。Okay。I like that。I like the open。
+
+ just notice your body language。If you're like， you try to do the stop， like。
+
+ you shouldn't notice much fucking sooner she's not gonna stop。 You're like。
+
+ and then you see your keep on。 You're like， and then you're like， oh， like that。
+
+ It's like Morris is like， hey， like shes a lot of momentum。 like， so like seamless， seamless。
+
+ seamless。这人？And again， it's like less， like I want more breaking a pour like this like when you open it。
+
+ it's like， I want to say hi， what's your name？What's your name， Excuse me， What's your name。
+
+ThatYou can ask questions。 What's your name Like， wait， wait， wait， wait， what's your name。Like that。
+
+And my favorite open， by the way， too， if you ever for like day game is always any fucking question。
+
+ So it's like， hey， how like not， how are you， it's like， excuse me。 I I was open。
+
+ excuse me excuse me。 Any question， Excus me。 Are you from Vegas， Excuse me。
+
+ Do you speak English with a little bit of that challenge of breaking a poor。
+
+ And then whatever fuck she said she's like， yes or no， A， Julia me。Any open， like walking。 Oh。
+
+ excuse me。 Do you speak English Oh， cool， Julia。 Nice to meet you。对。And then did it， do。
+
+ whatever the fuck。And remember， it's not about getting her to talk。
+
+Like it's cool to sell us questions， but those questions。
+
+ that's just giving her the opportunity to experience you because you're at the cause。
+
+ she's at the effect here， it's like you're trying to get her to be at the cause all the time。
+
+You know， when she's talking， that's not she's getting attracted to you。
+
+She's getting attracted when she's on the receiving end。When I'm talking right now。
+
+ do I feel any difference really talking to you， you， you， you， you， you， you？Yeses no。No。
+
+ because I'm doing， you're on the receiving end。But if you started talking me。
+
+ you started talking me， you started talking me， I'd feel very different depending on who's talking because I'm in the receiving end。
+
+When you walk up to a girl， she's like  who the fucks this guy。
+
+ she wants to be on the receiving end that so she gets to know you and see that you're cool。
+
+If she's just talking to you it could be you or any other dude， she's whatever。Okay。Mary。She's like。
+
+ I'm married by like that No she said， oh I'm married。Okay， now little subtlety。
+
+ did you look for the ring，If you get a reaction like I'm married， I have a boyfriend。
+
+ and it's within like the first like 30 seconds。I wouldn't always take it seriously。Okay。
+
+ because again， especially here。You gave her nothing like she doesn't know anything about you。 She。
+
+ You gave her nothing to experience your vibe， let's you say。So it's very easy to use as an excuse。
+
+ Like， that's the go to excuse to get rid of any。s like， I have a boyfriend。 I'm married。
+
+ If she tells you later on， then most likely， it's real。But as she tells you earlier on like that。
+
+Not always， but most of the time， it is an excuse。So I would have say it a little bit longer。
+
+ maybe try to give her more that sample of your personality。 But ideally， it's like。
+
+ convey more sooner。 Like， that's what a pickup really is。
+
+ It's like that 45 minutes hour and a half say till sex。
+
+ It's like this window where you just like convey as much of your fucking personality as possible。
+
+ as much as your vibe who you are as possible for her to fuck you。 That's it。
+
+ You're just superchar that shit。 That's why you're able to fuck her so fast。😡，That's， that's pick。
+
+You know。Before here， like before the hook point， like here it's not hooked， obviously。
+
+ it's like you also have that period which's like fucking supercharged that shit to convey I'm a cool dude。
+
+Don't expect that the girl knows you're a cool dude。You know， by that note too。
+
+ it's like you can't take a rejection like this personally。
+
+ like you weren't even in the game to be rejected。Cause that's another thing too。
+
+ we take it personally。 It's like， she knows nothing about you at all in this case， literally。
+
+And she doesn't really know what you want。 It's like what do you want， Like what I'm married。By done。
+
+Yeah know。7名。A闪。对。I like the opening， excuse me question， but are you shopping？Are you shopping？Oh。
+
+ cool。 like that more。 Yeah， like a little bit of hump。 Yeah， are you shopping。
+
+Kind of like a smile challenge criticize。Like， wait， wait， are you shopping。Can like that。Now。
+
+ at this point， you'd be like， I'm ashed， by the way， Try to do that fast。 Like。
+
+ especially during the day， you want that handshake to really clarify， like。
+
+ I'm here to meet you orre meeting each other because it's like， what does he want。
+
+ Is he selling a shit。Does he work for， fucking gap and shit？It's like， whats want， was promoting？
+
+You know， are you promoting Gb， is you promoting those same shirts He wears all the devastating kid。
+
+'s like， what does you want。😊，So it's like， I try to get that hey like soon as fucking possible。
+
+ like as soon as there's that window here， there wasn't cause the first question is like。
+
+ are you doing this like， no， by the way， this is my first time you have to qualify yourself man as well。
+
+So that makes a lot more sense now。Let's go。You have to try so hard。系仔。し个わ了。
+
+And when you're asking these questions， too， night game， day game， by the way， for all you guys。
+
+ try to。She'll get to experience you a lot more like if you keep your topics wide versus going deep on one topic So what does that mean here。
+
+ it's like oh， you're tired， did you go out I'd be like are you tired。
+
+ What do you think of this Like are you tired Did you see Star Trek like something just doesn't make sense like more topics and the more there's no connection between them the better。
+
+If you want to just quickly get an emotional spike。
+
+ just say two things where there's no logical connection。You don't have to even say a crazy thing。
+
+ You could be like， hey， so what's your name， She's like， Jessica， what are you for breakfast。
+
+So like there's nothing polarizing about these two questions。
+
+ But when you combine them like that in that order， the transition is what's polarized。
+
+ It's kind of like it kind of snaps them out of what they're they're expecting。
+
+ So you can that's why I'm， excuse me Are from Julia nice meet you。
+
+ There's still a little bit of that。 what And then last something。 I'm like， by the way， like that's。
+
+Probably how I get the girl like to react and maybe amplify the hook point in like 99% of my sets。
+
+Like fucking last night。 and you could do this， by the way， new girls or girls， you know。
+
+ especially and this is the best one through fucking social circle where there's like you don't want to be like too fucking out there because again。
+
+ there could be repercussions Last night I was out。 There's this girls like， oh， I think。😡。
+
+Whats it Luke， I think of it was a Luke's friend's friend。 Okay， some female chick。 So's like。
+
+ This join。 And instead the same crazy shit。 What do I I'm like so wait a minute。
+
+ like out of the blue。 I I'm can I see you first my side you guys know each other。
+
+ She's like again logistics。 Oh I know her。 I never met Luke。 She just over going here。's cool。
+
+ And then I'm like。😊，By the way， how old are you？Bang that how old are you is like the best way to start。
+
+ on one hand， polarizing the interaction。 How old are you。With a bit of like a hint smile。Okay。
+
+ and then she's like， oh， I'm， you know， fuck I forgot。 she's like， oh， I'， you know，25。
+
+And then immediately I'm like。fuckuck， I don't know what I asked。 I said some like random shit。
+
+ I'm like， do you ever travel outside of America。Like just shit like that。
+
+ It just doesn't make sense and just like， keep stacking these fucking questions。 And like。
+
+ I reel am in asking questions， just question after questions。 kind of like this。😡。
+
+Playfully provocative， I'm at the cause， breaking rapport， flirtatious， challenging。
+
+ illogical interview。That's it。 It's like， wait， did you do this and like sta like。
+
+ what do you eat for breakfast， like shit like that？
+
+And then you kind of like write it till the tension builds and then， oh， so I'm Julia mess you。
+
+Oh so oh， cool。 So anyway， I， I approve or some kind of that type of item And this be like， wait。
+
+ why were you asking this。 And then now you're there。And be like， don't worry about。
+
+And then move on to whatever。 But like， I do a lot of those like kind of questions。
+
+ So if you are gonna go the question route， like this like kind of stack it like that。
+
+ like morelogical， more like weird interview， where she's like， why is he asking me this。
+
+I do that a lot。再生。Bye guys。Now， I wouldn't even like bring up this hit on by guys。
+
+ reject them because they're going know kind of like。You haven't hooked yet or kind of like。
+
+ what we should be doing a you type of thing and the frame of mind you should have is you're so fucking cool you've never been rejected before。
+
+So up you don't even know what rejection is。You know， that's an interesting one， too。 by the way。
+
+ if you half as an open， if you're like walking up and you're like。And then like you open。
+
+ on one hand， every girl consent sense that shit。 Like you think they don't notice you。
+
+ They fucking notice you。 It's better just jump in。
+
+ And it also communicates that you got rejected before。
+
+ The dude just kind of jumps in and interrupts The fact he has the balls to do that is like he probably never been fucking rejected in his life because if he did。
+
+ he' probably halfac because he'd fear of the rejection。 It's like this guy's never been rejected。
+
+ That's why he's able to be so fucking cocky and confident。You know。you。还是理解。
+
+It's more so where are you guys going， where you guys going， where are you guys staying to today？
+
+What are you doing right now， you like just wandering around what's the game plan How can we move this towards sex。
+
+Remember， the goal is not to reach the hook point， start assuming the hook point a lot more often。
+
+ the goal is sex。The goal is not to have this crazy。Sppicy， perfect， perfect。
+
+ perfect optimized vibe interaction。 The goal is sex。 The more you keep thinking the goal is sex。
+
+ the more you gonna start moving there。 Like you really don't need that much for sex。
+
+ All you guys right now have a good enough game to go for sex。You know。
+
+ it is you get what you aim for if you aim for a good vibe， you'll have a good vibe。Yeah。
+
+ so the polarizing questions， those could be qualifying questions。Oh yeah。 Yeah。 Yeah。
+
+ That's kind of thing。 It's kind of like， Yeah， that's why I'm saying's like this wacky kind of qualified interview。
+
+ But the fact that logically， it's like shit that doesn't even make sense。
+
+ That's what kind of makes it funny。 Like anything where you can kind of。
+
+Do stuff that she's not used to kind of like disrupt the pattern。 So another one is。
+
+Another one I kind of do is say， you can。Do a push in a complimenting tone， for example。You know。
+
+ so instead of being like， usually it's like， fuck you。 I hate you。 You'd be like， I love you。
+
+ should like that。 Or usually like， oh， you're so awesome。 You know， it's like， oh， you know。
+
+ you're so old or like weird， like weird shit like， I mean I'm。
+
+So I can't bring it up right now for some reason。 Like when I'm out in field。
+
+ like like any like kind of like backhand thing。 like she's like， oh， you know。
+
+ I'm tired you're like， that's。 know， my grandparents get tired a lot。
+
+ like that kind like a compliment。 But like there's little thing she has to think twice。
+
+ like anything she kind has to think twice because that's the breakfast thing like for breakfast。
+
+ She's like， why is he asking that kind of takes her by surprise。 Like disrupts her here。
+
+ We're here in the moment boom and like kind of opens the。😊。
+
+TheThe herd of defense or whatever front like， experience you。 So I'll do that。 And then obviously。
+
+ like knowing me， I'll push it further。 So'm like， so how old are you in your loss of virginity。
+
+And she's like， what， you can， I'm like， don't be so stuck up。 We're in a club。 It's fine。
+
+Is see your uncle？Your craft fucked out or like， so how many guys have you fucked。
+
+I'll probably ask those in like all the sets。 But here's another one， too， It's like。
+
+I'll ask you with a smile。 And here's how you can kind of combine the two。
+
+ And this does link to social intuition。 like pressure on pressure off。
+
+ I'm saying something so fucking out there。 So like， how many guys have you fucked。
+
+ But how what's the tonality？ So how many guys have you fucked。
+
+ That's when you can use your tonality is when you say shit like that。That's how it evens out。
+
+ If you're gonna to use that toity， It's to say shit like that。
+
+ Even sometimes I asking for the logistics because it is in a way， pretty pressure on direct。
+
+ Like where， where are you staying， I'm like， so what are you saying， Where are you saying。
+
+Vers is where you saying， so where you saying？You know。I like you。 You're cute。Complement with it。
+
+参加そうです。Don't ask too questions。No， 70% plus of my game is questions。Don't look at。The thing。
+
+Or the action or the words， but the place it's coming from。嗯。😊，You can， for example。
+
+ offer value asking a question。Yeah， it depends if you're doing it。You could say， like。
+
+ I could pick up the girl saying the exact same thing as him being super polarizing and getting resed。
+
+It's the intention behind it。 If you're going up and you're like， oh。
+
+ I need the questions to get her to talk。 I need her to like me。 you're asking questions like that。
+
+Then it can be very bad， very needy， very horrible。
+
+ That's what most normal peoples game who don't know game。So vibe behind it。Places coming from。
+
+ the nuances， the subtleties。Just for clarification。
+
+ it's your intention to be polarizing in that moment or it would be like my intention is to be real but supercharged。
+
+If you're real， it's like naturally polarizing in a way。 And again。
+
+ you want to convey as much of you as possible。 A K， you want to convey the pull and the push。
+
+ You want to give her a huge fucking sample。 you super as in polar like Oh cool。 So how's it going。
+
+ Now we can chill。 It's that old school，910 rule90% time you're just like。
+
+ getting her to react like until it clicks that this guy's cool。And now you've hooked an an gel。Okay。
+
+ but again， it also depends on girls。 sometimes on the second， as， as we said before。
+
+ a lot of the time you open， like the first girl， hey。
+
+You don't need to supertge anymore anymore you got it。
+
+And so when they ask where you ask me all these questions， they don't worry about it。 be like。
+
+ I'm curious or you can don't worry about it。 It'd be like， I'm curious。' be like， I'll tell you。
+
+Or just be like。I don't know。 You could actually say it， it doesn't matter。 Just， just don't。
+
+ she's just kind of looking at。How does he react to， Why ask me these questions if you're like。
+
+ because because like you can even say the， oh， don't worry about it。
+
+ But if you're saying it kind of reactive like， don't worry about it， then it'll be bad。
+
+ It just like。They be rare， something along the lines of chill。
+
+ a little bit of a cocky smell like blah， blah， blah。Fill in the blah，h bh， whatever。I like cookies。
+
+That work。 Why ask me， I like cookies。 Like， I get more at cause type with it。Like for real。Yeah。
+
+ and this takes by the way， so much pressure off。I mean， like once you understand。
+
+ like it's the vibe and like that communicational place it' coming from。
+
+ that's how you pass a lot of these shit tests too。
+
+ because if I had to logically think of the good comeback every time I got like a question like that or a shit test like that。
+
+You can't immediately by thinking about it， you're reactive and you can't have that smooth comeback because it goes through the logical。
+
+ Does this make sense， It takes too long。So once you understand it， you're just like。
+
+ is the vibe good， Yeah， and then literally whatever fucking words come out are good。
+
+Is the vibe good， that's all your thing， is the vibe good。So even like saying the rhythmss like。
+
+ so what time is it， it doesn't matter。Just like that type of。稍有傻男子么？可以呀，试。As I also say in 10 game。
+
+ it's like that check this out vibe， Where's the check this out， how you bring them into again。
+
+ convey your personality， bring them into who you are， what you're about。This is Vegas。M。
+
+It should be way morecycl this fuck vs。know already。あく。Again， looking for a way out。
+
+Becauseuse it's like that it's expecting too much。 It's like， if you saw the in10 game。
+
+ the V idea did to Jeff， this is like Uber driver game。You see that one？Where basically like。
+
+ you know， you get in an Uber driver like an Uber and like the driver starts like。
+
+ say you're in a very non talkative mood。 You know， it's like， you just want to fucking in your Uber。
+
+ get home and you get in and it's that chatty dude has no social intuition。 He's like， hey， manso。
+
+ where are you from。L A， oh， you like Vegas。 Do it。 And you're like。
+
+ you're trying to like kind of dodge it。 Like， you don't want to give him a detailed answer because it'll make him think you want to talk and get them to ask more。
+
+ So it's like the quick kind of dodgy， like， yeah。Com like shut the fuck。 Like。
+
+ do you get the hint while still being polite， That's a lot of like girl' reactions like if you're like going up like expecting its like。
+
+ so dude， do， they're like，And again， it' like they're just trying to get that out because you don't have any fucking value at the time。
+
+ too， you know， and。And it's like asking before having conveyed。
+
+If there was value in the fucking Uber driver， you'd be a lot more invested in answering those questions。
+
+ like if there was a friend of yours， you'd be like even though you're not that talk。
+
+ if you'd still be more invested or you'd be more down to talk back than some Uber driver。
+
+ it's like what the fuck you want。You know， that's kind of what the girls are saying here。 It's like。
+
+ literally say you're out walking in the mall like tonight so you're walking and some dude walks up like。
+
+ hey。What's your name？You're like。Ash。He。I'm John。这个是认确。This is Vegas。What are you be doing。
+
+ you be like， like what the fuck is this， Like， what do， what do you want。
+
+Do they know what you want now， it's like， okay。I'm going here now。So it's that's everything。
+
+ It's like， convey first and don'll be like， trying to like， give me， give me， hey。You know。
+
+ like and holding that intent  backward's like， I'm here to fuck。
+
+ It's like they don't know what you want。 And one thing， little， too。
+
+ in terms of optimizing the vibe is put in a little bit more movement excitement。
+
+You're kind of like statue a game type thing like， a， I think you'd like this。 You know。
+
+ like you should be laughing at this shit。 You say way more。 like Luke does this lot time。
+
+ I do it all the time。 It's like， when you see this like in field and she's like。
+
+ we're jumped like giddy about everything we fucking say， like giggling little girls in shit。😊。
+
+You know， it's like I'll say something But like the whole thing， I think this in like comedy， like。
+
+ don't laugh at your joke first in game。 you laugh first at every fucking thing。 It's the opposite。
+
+ You should be like if you're not laughing at the shit you're saying。
+
+Work on that and learn also how to like， let loose and express that。 Like， it's totally fine。 Like。
+
+ if you're fucking laughing shit that the girls will be like， oh， way more than so。
+
+It's like even the fucking Uber driver， features starts kind of laughing uncontrollably at what he says。
+
+ you'll get way more sucked into it。You know。And there's just， there's too many like those drops。
+
+ So you。So， Starbucks。So。You know。Yeah。Pretty much。はい、お味しいがします。ごさします。新外所。So。快啊。That try。
+
+So in this case， by the way， in speaking of nuance points， as you asking， cut the fucking questions。
+
+In this case， it's like because the vibe it's more of like the taking vibe behind it。
+
+ This is the case like， say you're like， oh on a little farm。
+
+ Then you tell a fucking story about the farm。 You're like， by the way， like a little fucking farm。
+
+ You know what， like something excited like that。 That'll then re them like a fucking story。
+
+ Check this out。 There has to be the check this out。
+
+ don't like a response Like how you just keep talking No， it's doing what I say。 It's like。
+
+ get them to experience more of you， more excitement， more type of vibe， a little bit provo。
+
+ It's like it's not。 how can I get them to talk。 It's how can I inspire them to fucking talk。
+
+ by me going first。 You gotta go first。 Sam as we were talking about like sex。 Youre like。
+
+ maybe now she'll jump on my dick。 Go first。Got it。So I'm actually surprised of staying。
+
+I guess there's still somewhat of a possibility。 However。
+
+ my prediction is kind of that interaction where it's like。
+
+ nice to meet you at the end or a little number of little flake。
+
+ It's like there's not that investment。 It's of This is like social hook point that just stays the entire time。
+
+But plus side that persistence， like staying in。Super good。
+
+ but just kind of switch things out if you see it's like always the same， switch it up， switch it up。
+
+ switch it up。You know。悩み。Yeah。And again， where's the action， you're kind like， oh behind。A you。
+
+Are those new ones。 How did that other one end？ Theres just like a bypped。It's not going anywhere。
+
+At least that's for the number。 Otherwise， you just dip out for like nothing。
+
+ Its like you stuck in there for that long。 At least that' for the number just in case because that's it。
+
+ it's like， who knows， Maybe it's like， they're like， an， end of the night， they。
+
+ they don't pull anyone。 The fucking horny。 You text them。 They're like， yeah， come over。Okay。Yeah。
+
+ you never fucking know。 Like some girls totally down to get the numbers like me。
+
+ Some other girls like this， you may fucking。Whatever they feel in the moment。应该是。knew。
+
+ToSa hi to you。欢迎小兵。而且在是。Where the plane。 so again， same kind of thing pops in questions。
+
+ you repeat what they say it's like you for plane。 Oh you're paid for the plane。's like more of you。
+
+ There's always a difference between when you're on camera and off camera。
+
+ You're way better off camera。 I'm way fucking off camera like for me to get the footage I have。
+
+ I had to brainwash myself into forgetting。 there's a fucking camera Yeah。
+
+ because immediately camera like you're filtering like just as much as you've been in your head。
+
+ like how do I look got to do well for the camera。 like you're attached the outcome， your ego。
+
+ It's tough。 So yeah， really good。Next one。 So this is a poll where he gets the girl。
+
+ How did you feel about it， What's the situation Okay。
+
+ so he from when he told me he went into the set and he actually ejected by getting her Facebook。
+
+Okays she's from Korea okay she's not like an American girl Go it so I think he tries to number close。
+
+ but I don't think she has like a number so he decided to face closer and he leaves but the camera guy told him to get the fuck back so he goes back and then persists and then he gets the Go it got it。
+
+But yeah， props because like you know， if I were him。
+
+ I would have objected to because I've never even like dealt with the international girls really until yeah。
+
+What yeah， I'd say like for sure in that case if there's we'll see why bounces out。
+
+ but otherwise for sure stick in， but good thing on the phone。
+
+ it's like if she doesn't have a phone because she's like a foreigner guys are like， oh， fuck it。
+
+ just's like get the Facebook。喂。梨梨。You。あみュはい。回去两0。还是三角。 so I like， again。
+
+ we'll blaster like a bunch of guys now。 Not difference in the vibe。
+
+ There's a little bit more of that breaking report， a little bit more of that humph。 However。
+
+ what's here versus before。 It's a little bit more rushed。
+
+So that is the strength that you have is you're a little bit more relaxed。You know。
+
+ he think hes like， hey， but he got that。Other thing。Okay， all these little nuances。
+
+If you could like， if you could blend the two of you together， you'd be perfect。For real。Yeah。
+
+ literallys like like perfect。So again， immediately hooked， bang， you got that， you're hooked。
+
+So you notice that right？Yeah， so at this point it's like this is when you're there。
+
+ This is like you， you can just chill the fuck back Jo other those companies while focusing on logistics moving forward。
+
+ But that's it。 There's nothing you need to do more in terms of attraction。 You got it。That's it。Yep。
+
+ really good sexualpoint， thanks。Okay， just think social points。 is she acknowledging your existence。
+
+ that social points， She doesn't have to like， are you entering her reality。Socialpoint。
+
+ sexual work point， she cares。He was escalating。Don't need to Caring is sexual work point could just be this like here's social point。
+
+Sexualpoint。Does that， I don't know you have to talk。 It just like， I go from like， e Bla to Car。
+
+In that point， he。He to continue living care at that point， you're 10 out of 10。At that point。
+
+ like that。Vbe。Her being like。Like that。 And you been there。 That's 10 out of 10。 now， obviously。
+
+You have to maintain that。For a while。And obviously。
+
+ you have to focus on logistics and move it forward。 So there's a lot more。
+
+ but if we just froze like if we freeze this， boom， you're there。Yeah， it's like， and again。
+
+ what do most of us do is like， we don't see this。 We're like， we need more good reactions more。
+
+ And then you keep acting if you haven't hooked， all the way hooked。
+
+All you have to do here is is like slow at the fuck down and chill out。 like。
+
+ even choke yourself like so yeah， you know， like you can do the shit you were saying。 like。
+
+ so what are you， were you doing here He's in， You gotta make games work for you If you're some dude to like some like really like kind of strong voice。
+
+It's not the same advice I'm giving him。 It's all about that context for you like the opposite for you like。
+
+ oh。Exactly， its it's the same as like these two being combined。 It's like for him。
+
+ he need to be more like him， for you。 You need to be more like him。Okay， and that's game。
+
+ It's like knowing who you are， being honest with who you are， the belief。
+
+ sticking points you have and taking the shit you need。 And that's why there's， again。
+
+ different contradictions and paradoxes like for some dudes， it's step it the fuck up。
+
+ Some other dudes， it's slow at the fuck down。😡，And then， what， do we do， we look at that。
+
+ We don't process it through who we are。 And we're not honest with ourselves。
+
+ And that's why it's like there's a lot of confusion。 The guy was like， oh， step it up。 He's like。
+
+ well， step it up even more。And he'll probably actually tune out to slow it down because it's easier to keep doing what you've been doing。
+
+You know， for him to slow it down。I kid you not for a guy who goes out really fucking strong for him to slow down will be just as scary as say some other dude。
+
+ like amping it up。It's just as hard， it's like that's where you got to go。Okay。Okay。
+
+ she tell you right。 She call you right。 It's O。 She's calling in love。He's falling up。
+
+So I do like that， by the way， it's like talking to， you know。
+
+ obviously like some fucking girl like kind of just spinning in there versus just like quietly standing on the side。
+
+You know， not going over the top we' like like whatever。
+
+ like just a little bit like playfully light joking， that's good。And he gets a friend being like。
+
+ who's that guy。 She's like， oh， you，It's also because he's hooked。你晒你晒啲晒你晒。哦。喂。 they got hung on。
+
+ sorry。Now he's kind of overdoing it。Now he should actually just kind of slow it down be more chill。
+
+There you go，And total side note we'll play through a little bit longer when you're watching this too。
+
+ notice how you feel watching it。That's how I tell， by the way， how good an interaction is it's like。
+
+ I'm watching， I'm like， how do I feel when I'm watching this shit？Right now。
+
+ I feel a little bit antsy， little like if you project yourself there。A littlettle antsy。And that。
+
+ too， is like how you learn game。 It's like develop that empathy where you can literally project yourself into being that dude。
+
+Like you're him， you're in the movie right now， you're this fucking dude， you're in his head。
+
+ you're in his body， you're thinking feeling what he's feeling with that girl。😡，How do you feel。
+
+A little bit any， a little bit rushed， a little bit little too try。 just like so down。
+
+ You got her relax with you。 It's kind of like， oh god。Like that's what I feel。You know。
+
+ and that's literally what I'm looking for。 That's what I look for in myself。
+
+ even when breaking down my nights。 And this is why even on boot camp， like。
+
+ I don't even to even need to hear what you're saying like this shit。 I don't even give。
+
+ like I'm listening to the words， but I don't really give a fuck about the words unless it's like logistics。
+
+I'm like， what's the general vibe？Then obviously if it's not on I'm like， well。
+
+ you could switch up the words to do this， but I want to see that fucking vibe。Korea。You part of the。
+
+hungry。Are you a refugee， Are you Are you a refugee。I hear like in that little wooden shack。
+
+In the Alps in the mountains。行怎样。Yeah， come then we so if I forwarding here just to see if there's。
+
+ if it does slow down at all， which hopefully it does。You're way too old for me， you're way。ははい。
+
+A little bit more relaxed， you guys notice the subtlety there。It's sounds super relaxed。
+
+ but verse before like， here's like， ha ha ha。Or朋。More chill。It's more like， oh。
+
+ they know each other。 they're together。 they're like friends or more than friends versus they just met。
+
+ There's not that aniness， as much aniness。开电点计啊。Then totally hooked， totally same type of state。
+
+ same type of laugh as when he first opened。Just keep her in that state， find temperature going up。
+
+ that's it。It's a game of endurance。Are you ready。Thank you know that's okay。 that's okay。系位。
+
+Where can I go。你完毕。你明了。' don't need cheesecake， when you have me。So he bounced her。
+
+ I do like the fact he's still saving the rhythm and notice it really doesn't matter what you say。
+
+ cheesecake。 No it's like whatever the fuck。That's okay。
+
+ I actually have a cheesecake factory at my house。あか。I know we have to go there first。没有这个对。Okay。
+
+Where are they walking to。So he didn't really want。
+
+I felt like half of Vegas and he wounds up going to a completely different hotel。
+
+Half a mile away we're dripping s。It's like falling like God damn it。
+
+He was like trying to call us Uber driver right now and thinking like Uber driver can't find him。そやだ。
+
+In the taxi line。And then he tries to call another uber that eventually goes back。God。Yeah。
+
+ so again like。It can' be more on than this。 Like if a girls willing to go through all this shit。
+
+ like yeah， you better fucking poor。 like you have this。 you know， Yeah， I mean， he's。
+
+ he's lucky it didn't drop down。 she's like fuck that。 problem。
+
+ It like I think like at least for me personally， like I have my own car。
+
+ I'm used to pulling to my car and driving right。 So like it's just like pretty hard to get used to like the whole taxi lines。
+
+Taxi， we're going here。So taxi is like， it's so much easier and you'll see that too。
+
+ pulling in a taxi or Uber than your car。Pulling in your car is really tough， actually。
+
+ because it's like， it's kind of like a It's like because this guy。
+
+ we're gonna fucking stranger's car。 It's like， it's more a big deal than a fucking cab。
+
+Everyone splits caps， like I fucking cap， whatever。Oh yeah。
+
+ I had this one was more comfortable with the Uber Oh yeah。
+
+ like I'd actually likeber dude yeah even if I had a car， like I'd suggest the car。
+
+ but I'd probably be pulling a lot more in the Uber and cab and just leave my car there。Yeah。
+
+For real， and then justs like we bring back to your carton bounces。
+
+Of natural gas accounting and stuff。You know that。Coect， so notice again。
+
+ a lot more relaxed there in the vibe 2， a lot more normal。 And that's the key。
+
+ It's like the more normal you can be around the girl the better。Girls will tell that like the。
+
+ that's like the biggest compliment。 Like one girl who was in Miami this year。 She's like。
+
+ you know what， I can tell you're confident。 I'm like， why。
+
+ it's like cause you can be normal around me。Like that's it， the more you can。So much， again。
+
+ way easier said than done， but that's your goal。Yes。Thank you。 Can we correct the ACL？Yeah。
+
+Because like， yeah，系系。Gin。So yeah， again， like this one here， good vibe。 I would have。Again。
+
+ just to nip like slow it down a bit more knowing a bit more where to fucking go。
+
+ like don't overcomplicate things。 although this girl was like super hooked， invested。
+
+ he got away with it。 a lot of girls will just be like now fuck this shit walking around so know where you're going。
+
+You know， go there directly instead zigzagging and play to win。 Okay。
+
+ like if they didn't send him back in。You know， you would have been happy with the fucking number。
+
+ Did you win by the way。Did you win？Okay。Alli， who's Toby。You。
+
+What happened here or what what can we expect Yes same place miracle， I was just up。
+
+ we actually like f around with a microphone for like 20 minutes。
+
+ like trying to figure that shit out。 and then the first go up up into a poller。稍为事。All right。
+
+Excuse me， excusecus me， two seconds。 Are you a little call now。Good open。 Again， It's like， did。
+
+ Are you dead at a question with that little bit of that。 Do you guys get that vi Like， excuse me。
+
+ Ex me， Are you local or now。Excuse me。 It doesn't even matter the words。
+
+ Like it could be any fucking question， but it's like kind of that urgency， yet leading。
+
+ yet challenging。A little bit of a smile， vibe。系。I love how you like smile when I asked about it。
+
+ You seem like you I didn't want to stop you。 You seem like you're in rush。
+
+ I'm going this way anyway。I gotcha。 You still like youre like you cardio or something。
+
+You seemed really determined I like that， yeah。I'm from Den。自那で点る。Whats that know that。Ne Sanor。
+
+ Netherlands of Hol， I know。A you answer。That's my favorite。Have you been in Den。I you like try but。
+
+ You're so tiny。I pray so hard， I got so close to being able to go to Australia this year so's。
+
+That's interesting。You're so tiny。 I think I can fit in a suitcase。 So if， if you behave。
+
+ maybe I'll bring it back to them。give you little instructions here go that don。あのよ。大好。
+
+You got to do it real things though。That's。 Where did you go Ta。哇塞我有天夫了。What is Cal Harris？
+
+You just see some about it， I telling hours。Let let's what that way， I'm going to be friends later。
+
+ you're going to eat。DoDo't mind if it journey me until I've got a catch for friends？不 there。Hi。
+
+ so far。Anything？I was surprised。I say， yeah， town10， I wouldn't do it anything different。 Like。
+
+ there's nothing， literally nothing， maybe。Maybe it could just be also language。
+
+ Maybe maybe a little bit more like loose。 but it is also you got the fucking camera during the day。
+
+ you know， So no， dude， Ive literally have done the same thing。
+
+ Everything we're talking about you're doing like。Awesome， fucking open。 jump in。
+
+ Ki of figure out the logistics， like， oh， I'm gonna eat。 Like she threw it out there。 stopped it。
+
+ chill。 You were laughing at the shit you were saying。
+
+ there was a lot of like statements versus like the questions。 And again， it's like that。
+
+re like like that。's like， you should be giggling at the shit you say Like it should like。
+
+ that's what keeps her。 like， he's kind of excited about And like he finds the shit funny versus。😊。
+
+Hello， I answer。 It's not that type of vi there。 Got the logistics。 Like you planted the reason like。
+
+ oh， you know， my friends over here。 She's like， I'm gonna to eat here。Instead of being all stubborn。
+
+ like fuck that。s like， oh， do you mind if I go with you。So far， Ammen， fucking antenna。
+
+Don't you so waste。 I love that。我胁。I sure。And again， it's kind of like that friendly vibe too。
+
+ It's like， oh， you know， they're buddies。 They're friends。 They' know， like they're together。
+
+ You know， this is the type of thing too。 is's guys like， what if guys jump in my set， It's like。
+
+ if you see this， it doesn't look like they just opened。😊，That's how it should be。
+
+ the sooner you like as I say， the best way to open is skip the open。
+
+Best way to hook is Sip the hook。You know， just jump directly to like。
+
+ how would you treat her if you've just known her for fucking years？She。Who's the birthday shop？一关。
+
+Are those her friends or， Yeah， she got three friends sitting you can just outside the camera。 Okay。
+
+ I'm gonna walk with her like make some jokes about the whatever。
+
+ and then I'm gonna address friends before she came in。 Okay， like who birthday was like。
+
+For out the name over。I told you go check， I promise you，Or the music。
+
+ I thought like you had like annesty where you go like to sleep when you have a type of surgery。
+
+ it's kind of the same right， Anastaia。I like that。 Yeah， I like that， too。
+
+ It's like the being patient a bit。 like don't rush it yet at the same time， nuance points。
+
+ Don't be too fucking patient。Like this again。Only if you have to。 here he has to。
+
+ It's kind of assumed we're moving in that direction。 If you're like at the end of the night。
+
+ For example， the girl's like， let's go。 If you don't have to bouncer， for example。
+
+ for food or to a diner， don't fucking do it。So it's like don't fast forward the movie。
+
+Don't pause the movie。Keep it moving at a nice pace。Reganmic， sorry。No， I can't solve。I。
+
+One of my friends like she teachers but home to dance and she was like。
+
+ I can't make it like she went to Europe now。Okay。咁讲嘅。谢了。I see。 And I was like。我以我哋讲嘅。Every hour。
+
+Yeah， really good。 Again， vibing like that is like， that's vibing。 So you don'。
+
+ you're not even really running game at that point。 It's like game is really get to the hook point。
+
+Get the logistics， have some on a game plan。 Don't stop it from blossoming into sex。
+
+And fucking chill。That's it。It's not superpowers， it's not every move calculated。
+
+Fucking chill and that's the thing it's like how do you do it。
+
+ that's also why it's so hard to do it like if game was something where it's like do this。
+
+ do this do this， do this， do this， do this， do this like all the time like a little again till the end。
+
+ like move to the next step。It'd be a lot easier。The fact that it's this， that's what makes art。
+
+Right。Yes for going。 She's like I my。I yeah。我哋啊。He scratched out all the areas and I supposed。
+
+I was she had to eat that was like the only reason we were there。
+
+ the friends like left to get dressed later but she was talking so much he saw the whole there I think she like grabbed like three bites or whatever she got your paw like I'm not gonna to eat this so she just slammed down but I don't know if that's after or before but I was like so here wass up my friends just text to me they're not gonna come meet me because they's so home over yesterday if you promised to're not emrass me we can go check out my pool in my place because I knew she like had a gap between now and she had to go out and she was like。
+
+Perfect。I think I mentioned beforehand。 I was like I was trying to babysit us。
+
+ I was like are you adventur。 And she was like， actually it failed a little because she was like。
+
+Yeah， but I want to be safe， so it's just like talking about something else and then later I was like。
+
+ yeah also he was up， my friends text me。Perfect， where where was she staying， Like， where was this。
+
+ Where were she staying where you staying at this were like12 she was Yeah， fucked that then。Not bad。
+
+啊是。Where you go so。because she didn't finish her food。
+
+ she wanted to save it for later she was like I know I'm going to be hungry at home so she wanted to take up the food and she didn't have the car so we were actually waiting by her child for her friend to come down。
+
+ get the food and the friend bounces back up and I could。Do you know if there's toilet really？
+
+So she was still trying to plant the seeds in case to go up there or is that her place I wanted to remove thephone before I got home she was pretty。
+
+Can I see it？Yeah。That's me waiting for the she wanted to get her food up。
+
+ she didn't have the room key to get in whatever。对你们。没。I know you take it off。
+
+Sick fucking 10 out of 10， really。👏不有。Yeah， I means real。 It's like。That's game。
+
+ It's really that It's like I。I wouldn't have done anything better or different， it。A am。
+
+Have have a nice。I just saw you from down over there and I was like， I want to say hi。
+
+Are you already leaving。我's go欢人。Good， I like that。 It's like she's gonna find her friends。
+
+ find her phone instead be like， oh， don't go。 Oh。 Let's go。 Let's go find it。Bs of friend。
+
+ let's go find your friend。I was going to be on some friends。
+
+ but I was some board important duties to do now， like find someone on。You're from the bay。
+
+The fucking bay。Are serious？Letち class。What I think the baby， I just think it like。I mean。
+
+ the base's pretty big， right？How your big friends。あれ了。Do you wear MGns？やばいか。By byい。
+
+Are you walking with a plan here just kind of just walking with her？Cool。
+
+ but she doesn't really know where they are， though， right。Okay。I mean， you说。
+
+You got to make longer strides， your steps are way too short。おし返して。A lot of them。
+
+When you introduce me， you got to say that I'm really cool。D。I mean really。
+
+Are you guys all trying to find for now？You want to ask her if she wants to help us find this too？
+
+Hey， we're trying to find a phone you want to help us。
+
+ we're trying to find the phone you want to help us。Go go go。嗯。If it just like， add to the fun。
+
+ I would at the end of the night， though， when you're like， again， committing to a set for the pool。
+
+ I wouldn't merge。Yeah， I do that usually like beginning here and there。
+
+ But at this point it's like you got her just like just you and me time。
+
+ less distractions and stuff unless。Newuances， it's a great more。 Like here。
+
+ it's like she kind of joins in。 It kind of amplifies that conspiracy bond， like us versus the world。
+
+ So if that's the case。Occasionally sprinkle in like a few con。 like da。 like comments。
+
+ like it's us together， but not with the intention of actually bringing them in。 Yeah。
+
+ That's my point， sometimes I just。证时。Yeah。Don't we all？No， again。
+
+ these are just like little details。 it's not going to ruin shit， but just overall as a rule。
+
+We don't like her anyway。给你吃。東がし。You have another friend？I like， you making other friends？
+
+One thing I'll do to with the friends is。Again。Here it's totally good。
+
+ But one thing I just makes me think of this。 One thing I'll do is create conspiracy theory with her and with the friends。
+
+ basically。 So it's like instead of saying， I liked it likey， I'm Kevin， tell him I'm lit。 I'm like。
+
+ oh， say hey， you know， I I'm Kevin， tell we went to fucking high school together like she like that。
+
+ And or even if she doesn't buy into it。 when you say hi to the friends。 You just say， hey。
+
+ you know I'm Kevin， Yeah， we actually went to high school together。 It's crazy。
+
+ And then friends like and they's like， oh we kidding but kind amplifies that vibe and sucks the friend into that I it like sucks the friends into the party that you created with her。
+
+😊，No， I do it。 Like it kind of it does。 It depends。 if she does it， it's fun。 If you do it。
+
+ it's fine， it doesn't matter。 But if she won't do it， I'll do it。
+
+ Or sometimes I won't even tell her about it until it's there。It's like， hey。
+
+ Or sometimes this one gets really fun。 It's。 I'll go up and she like， this is Julia is Julian。
+
+ And then say there's like a few friends。 She may be talking to one。 And I'm left with them。
+
+ So she won't even hear it。 And I'll be like， somebody how do you guys just meet like oh， no。
+
+ it's crazy。 We're in fucking high school together。 She's like， really。
+
+ And like really fucking build it up。 And its like， wait a minute， you Yeah， and kind of let it Yeah。
+
+ it's fun。😊，对。Myice priority。What I would say is where your friends。
+
+ I would just drop the seed of after party。Just in case you can， So you can call back to it。
+
+ That doesn't mean pull her towards an now。 Like， where're your friends。
+
+ Oh I think they're that this party or something。 there's like this after party。
+
+ So it kind of gets her thing in。 and it gives her the opportunity to be like， oh。
+
+ I want to go to an after party to kind of pull herself。😊，No， I want to help you find this fun。
+
+ and I'm more for the adventure。And although I again， still good。
+
+ I would try to mention the phone as least amount possible。
+
+Get her mind off that her mind like the phone's taken care of it's in the past party。All of actually。
+
+悩んじゃな。I'm sorry位。Really disappointed。I thought like I'd see something that。ははは。
+
+So here you're back with your friends。She didn't find the phoneh or did she my。O。
+
+I you guys like Africa？有人。てね。You know like he's always a fucking scene。双号的。
+
+So you're going for a Snapchat here。For like because you can't pull her for fun or。Got it。
+
+ What I would do in that case is like， if you're gonna go for the poll。
+
+ don't get the number or Snapchat or anything till after。 And if that's your thought or like fear。
+
+ like shit， the friends may take her away instead of like running away from that。 fix the problem。
+
+ So it's like that's your mind telling you， maybe I should engage the friends more in case this happens。
+
+ Maybe I should win the friends over So they won't take her away。 Or if they do take her away。
+
+ they'll allow me to come long with。嗯。Yeah。哦，你要精神。I talk to your friend， then take her away。
+
+Did you talk to the friends？Yeah， in a group I said guys I'm going take the break。What do they say？啊。
+
+Also they allowed you to take her actually yeah there are like eight of them so I said hey guys。
+
+ I'm going to take your brand， we're going to come back here in 20 minutes you guys do your thing。
+
+And she said， you can do whatever you want。That's why you worried about their friends。 man。
+
+ they're all cool。😊，I'm actually gonna。try知冰啊。F。嗯。Oh， you're。Kith speed。送杯是。You pull。You all。
+
+ by the way， should notice a difference in the vibe between all the dudes we just saw here on screen。
+
+You know it's not the shit they said necessarily or the shit they did okay and the reason I'm giving you advice like change some of the things you say or do。
+
+ it's what we talked about before you're attacking it from both angles。
+
+ like acting as if while also removing that shit， but it's not the action itself。
+
+ it's like you just want to tap into that core vi。你 just在。You said a good vibeva。
+
+ if you have a ship vibe， yourre f。Don't know how to express it in words， like you said。You can't。
+
+What I'd say for you now is try to recognize it more in other people。
+
+ so like when you watch the infield， don't zone in on the actions or words。
+
+Try to emotionally connect with it when you see other people in field with you。
+
+ try to emotionally connect with it， when you analyze your nights， try to emotionally recognize。
+
+ how did I feel here， like honest introspection， do little checkups while out And then another thing too and this actually so fucking common with dudes and I can。
+
+I'm just guessing， but I assume you may have a little bit of this is like getting back in touch with the it sounds so lame。
+
+ the ability to feel like literally like we need to learn how to fucking feel like it's obnoxious like just by the way against society it's like if you feel you're not a man that's what it's telling you from a kid it's like if you feel you're not a man anytime you have any kind of emotions。
+
+ it's like don't show it， never cry， you'll be fucking so surprised like what awareness will do like if you just keep bringing your awareness this one thing。
+
+Eventually， over time， it'll kind of fix itself。 Like a shit will happen。
+
+ just keep bringing your awareness to it and then like wall out or throughout the day even like。
+
+Like even throughout the day like sit down and just like ask yourself what's the fuck's going on inside and just kind of allow yourself to experience what's going on inside versus always living in our head and logical and stuff like that I think that'll be like a huge big step forward the more you do it at home throughout different different situations while out the more you see it in others and like just training your RAS focus to go beneath the words most quote unquote chose when they ask like hey do do what about it and like always agreeing their intention is。
+
+I don't want to like go too strong， I don't want to offend her， I want her to react well taking。
+
+I want to agree with what she says because I don't want her to be pissed and stuff。Ting。For me。
+
+ I'm just kind of just like doing it， my intention is I'm going to fuck you， you love me。
+
+And I'm offering value， and I'm the shit。 And I'm the second coming of Christ。
+
+ Like all that is kind of being communicated in the intent， like me saying， hey。
+
+ how's your night going。That's all that's fucking me the intention， I'm Jesus， yeah。
+
