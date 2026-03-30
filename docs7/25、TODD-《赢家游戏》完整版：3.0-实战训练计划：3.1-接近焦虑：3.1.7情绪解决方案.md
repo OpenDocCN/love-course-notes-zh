@@ -1,0 +1,98 @@
+# 25、TODD-《赢家游戏》完整版：3.0-实战训练计划：3.1-接近焦虑：3.1.7情绪解决方案
+
+The final technical solution to approach anxiety is actually how I overcame my approach anxiety。
+
+ And it was this。Eventually， I associated more pain with not doing the approach than with any possible outcome of the approach。
+
+ because here's the thing from about the age of， I would say，8 or 9 years old。
+
+ I realized I liked girls。From that time until about 18， I didn't do cold approaches。
+
+ I would see girls I wanted to talk to， and I wouldn't do anything about it。Even girls in my classes。
+
+ I wasn't doing anything about it， right， So I was just not taking action。 And every single time。
+
+ I didn't step up every single time， I didn't go talk to the girl every single time。
+
+ I didn't ask the girl out。 Every single time I didn't make it man to woman。
+
+I felt like less of a man。 I felt worse about myself， and it hurt， right， That became pain。
+
+ It became the pain， the disappointment， The fact that I knew that I was rejecting myself， right。
+
+ I wasn't even giving the girl an opportunity to reject me。 I was rejecting myself。
+
+And it got to the point where that was just too painful。 Go to the point where I was like， fuck this。
+
+ Never again。 Never again will I reject myself。 This is fucking pathetic。
+
+ And it became such a fucking chip on my shoulder that I will not allow that to happen any more。
+
+ that I had no choice but to approach， because I knew I knew how painful it would be to me if I didn't approach。
+
+😡，Right， I， I didn't know if it would go well with the girl， but I knew if I didn't approach。
+
+ I'd be kicking myself for the rest of the fucking day。 right。
+
+ And I had just rejected myself too many times to ever let it happen again。
+
+ And that's the decision I made。 It's like a fucking like， you know。
+
+ you know how like religious people。 like that like they're their commandments。
+
+ I live by these commandments。 I will not violate them ever。 It became a commandment for me。
+
+ became a commandment。 Thou shalt not reject yourself。😡，Thou shalt not reject yourself ever again。
+
+ right， She rejects you fine victory， positive， wonderful。 If you reject yourself， what the fuck。😡。
+
+Right， you are not allowed to reject yourself。 And that's what it became for me。 Because， again。
+
+ I'd had the pain so many times that having that pain one more time。
+
+ having that idea that I could have rejected myself hurt more than anything she could possibly do to me。
+
+ right， because to be fair， anything， Any response you get from her isn't a reflection on you。
+
+ But you not stepping up is a reflection on you， right， So get your ego attached to that。
+
+ Don't get your ego attached to am I good with girls or did I get a good response。
+
+ Get your ego attached to， Did I let myself down or did I step up。Did I do what I know is right。
+
+ or did I know the weak answer that was like a little more comfortable in the moment， right。
+
+ change your。Your assignment of right and wrong。 change your assignment of what is a win and what's a loss and make it a commandment for yourself。
+
+ that never again will you back down and reject yourself。 And that's what I did。 right。
+
+ That's what I fundamentally did that got me over my approach anxiety。
+
+ So was I over my approach anxiety in the sense that I didn't feel scared。 No。
+
+ But I was over my approach anxiety in the sense that no matter how scared I was。
+
+ I knew the right thing to do。Right， no matter how scared you are， do the right thing。
+
+ That's what they say。 They say bravery isn't the absence of fear。 It's being scared。
+
+ shitless in doing it anyway。😰，It's just not giving yourself the excuse anymore。
+
+And that's the fundamental thing that I did to secure my approach anxiety。
+
+ And that's the fundamental thing you really need to do is you need to have that strong enough desire。
+
+A strong enough desire to go after what you want。 And quite frankly。
+
+ that strong enough desire to love yourself enough and be true to yourself enough to not reject yourself and not let yourself down。
+
+Right， because if the girl rejects you fine whatever I can， I can live with that。
+
+ I can go through life having been rejected by the girl。
+
+ But how can you go through life knowing that you're rejecting yourself。How can you live that way。
+
+It needs to be painful for you。 It needs to be so painful for you that you say never again。
+
+ it's my commandment。 thou shalt not reject thyself ever。
+

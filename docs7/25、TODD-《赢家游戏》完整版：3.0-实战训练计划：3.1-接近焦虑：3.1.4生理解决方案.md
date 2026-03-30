@@ -1,0 +1,189 @@
+# 25、TODD-《赢家游戏》完整版：3.0-实战训练计划：3.1-接近焦虑：3.1.4生理解决方案
+
+The first of the four technical solutions for approach anxiety is a physiological solution。
+
+ physiological solution。 Physiology basically means almost like the way you're acting in your body。
+
+ I don't know if that's an exact definition， but just take that as what physiology is for now。
+
+ its the way you're acting and feeling in your body。 the idea is this。
+
+ A lot of people when they go to go meet girls。 they'll walk around， you know。
+
+ in the daytime or walk around the club going like sulking and just in their head and just like very like closed off reserved。
+
+ shy， tentative body language。 Then they'll see the girl。 And all of a sudden want to be like， oh。
+
+ now I got to be alpha And that's a very hard transition to make， because again。
+
+ your body is it is a collection of chemicals and molecules and all these things。
+
+ theyre all responding， interacting with each other。😊。
+
+And there's all these different sort of hormones and things being released。
+
+ So you're in one state of mind or another state of minds。
+
+ And it's very hard to just snap and change all of that。 right， It is doable。 It is possible。
+
+ but it's much harder。 It's a lot easier if you're walking around。
+
+ already feeling good about yourself， already feeling good about life。
+
+ already in a positive mood to go talk to a girl and be in a positive mood than it is to suddenly snap yourself into a positive mood at a moment's notice。
+
+ so what I want to encourage you to do is to do various things that can help you to get into a good state of physiology。
+
+ and some of these are more applicable to a club situation。 Some are more applicable to day game。
+
+ I'm just gonna run you through some of the options。 so let's say you're in a nightclub。
+
+ What can work for a lot of guys is just go on the dance floor and just start dancing and dancing and dancing and kind letting loose and letting their body loose in particular。
+
+ if you can dance and stop caring about anybody looking at you。
+
+ don't dance a little bit and like look around and that look good。
+
+ just dance and be free in your body and just express。😊。
+
+Yourself without any care of how anybody will think about you。
+
+ that can be a very freeing experience for a lot of people。
+
+ Another one that works well in a loud club or maybe like on your car on the way to the club。
+
+ or if you're just， alone before you do an approach。
+
+ is just literally shout at the top of your lungs。 just shout anything at the top of your lungs。
+
+ And what that does is a physiological release a lot of times the reason why we're quiet or the reason we don't use our volume properly on an approach or whatever isn't because we're not physically capable。
+
+ it's because psychologically we're restricting ourselves。
+
+ We're afraid of the repercussions And so if you just get your body used to being loud and expansive and just like screaming at the top of your lungs a couple of times。
+
+ you're kind convincing yourself that it's okay in the world as a safe place and it's not not a big deal。
+
+ And so when when the time comes to go be expressive with a girl， you're not holding yourself back。
+
+ you're not reserved， etc ce。 And just that physical action of being expansive。
+
+ speaking of being expansive， Even the physical action of just yawning。Just doing that。
+
+ just having a good yawn and releasing the muscles， Re some tension can work。
+
+ That's not something I personally ever overtly tried to do。
+
+ But when I was in my early days of doing cold approach， I found that I would do something like that。
+
+ A lot of times if I was feeling a little nervous。 and I was gonna to do an approach。
+
+ I would actually yawn or stretch out on the way over to do the approach。
+
+ It it's something that was just a learn behavior because it worked。
+
+ and it helped me to be in a more relaxed， better mood right before doing the approach。
+
+ Another routine I had before I do approaches。 I had two other ones that I would do very early on in my pickup career。
+
+ I don't really do any mores。 I don't need them。 But what I would do is I'd just take a nice deep inha。
+
+ just like。😊，Just a nice like。Deep inhale， fill up， like。
+
+ feel good and just kind of like put your chin up， put your nose up a little arrogance。 even like。😊。
+
+Just that。 And I would do that right on the way to do an approach。
+
+ The other 1 I would do sometimes just clap my hands and then go do the approach。 Now， obviously。
+
+ if the girl's right next to， you don't want to clap your hands in then approach， there's。
+
+ there's just practical concerns。 But if you see a girl 50 yards away， man， here we go， right。
+
+ Just get yourself jazzed up。 And there is something to all this physiology。
+
+ There's a reason when people play sports that they'll like get in a huddle and jump up and down and scream。
+
+ right， There's a reason people high5 and chest bump。
+
+ It's because physiology does affect the way you go through life。In a sort of a longer term sense。
+
+ having better physiology actually can confer health benefits。
+
+ And it can confer things to your self image。 There's this phenomenon that's called the winner effect。
+
+ which basically is if you win at one thing。 it will make you more bold and daring at the next thing。
+
+ And that it's an evolutionary thing。 if you're used to losing and losing and losing。
+
+ then you're not gonna step up and put yourself on the line， because you're afraid。
+
+ if you're used to winning and winning and winning， you feel like you have value in the environment。
+
+ you feel like you can step up and do the next thing。
+
+ So one one good thing is do a lot of things you can win at。
+
+ and and also find the wins in the things you're doing。 And that's sort of a psychological thing。
+
+ the physiological thing， though is take on the physiology of a winner。
+
+ start walking around and just walk around with your chest a little higher。 walking around like。
+
+ you know， a good a good posture about yourself。 or when you're doing game。
+
+ instead of just skulking around between approaches。 Why not strut a little bit。 Why not just like。
+
+ you know strut around， act like you're the shit。 couple exercises that I've given people in the past that。
+
+😊，Along these lines。1 is， I have them walk around and they like walk around good body language strut a little bit。
+
+ And the thoughts are， I don't give a fuck what anybody thinks about me。
+
+ I don't give a fuck what anybody thinks about me， just like repeating that in your head。
+
+ even out loud if you wanted to， just getting that physiology and getting yourself a little bit pumped up。
+
+ Another one that's really silly that I've had people do with great effect。
+
+ And I don't suggest this is a long termm solution。 But it's a good every now and again。
+
+ or short term solution is it'll tell someone， they have to actually physically skip。
+
+ like do emotion of skipping， like skipping up to the girl。 And then when they get there。
+
+ then approach。 And the great thing about that is two things。 numberumb one， skipping is again。
+
+ expansive and like very animated。 But number two， once they've skipped up to the girl。
+
+ there is zero fear of embarrassing themselves because they've already done the most embarrassing thing they're gonna do。
+
+ And so it just frees them to really express themselves and do some positive things。
+
+On a more low key way， if you don't want to make a huge scene。
+
+ another one that I'll do sometimes or that I've had students do sometimes is go find a mirror。
+
+ look at yourself in the mirror， and you're allowed to smile， smirk or wink。
+
+ and only that You go for a minute or two。 and you're only allowed to smile， smirk or wink。
+
+ And again， you're adopting the body language of a confident person。
+
+ You're adopting the body language of someone who's winning at life。
+
+ And there's this natural feedback loop。 You adopt the body language because you're winning。
+
+ but you win because you adopt the body language。 So there is some value in starting that feedback loop in a positive way。
+
+ even before there are any actual events to base it on。 right， So that's the physiology solution。
+
+ get your physiology right， It can make a massive difference， It certainly can help you。
+
+ And it's certainly never gonna hurt you。 Having good physiology is certainly just gonna help you in anything in life。
+
+ So why not do it。 Okay so get your physiology right。 It'll help you in life。
+
+ Itll also has a good chance at least for a lot of people of helping you with your approaches and you approach anxiety。
+
+😊。

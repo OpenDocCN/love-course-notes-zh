@@ -1,0 +1,96 @@
+# 25、TODD-《赢家游戏》完整版：3.0-实战训练计划：3.1-接近焦虑：3.1.1接近焦虑介绍_ev
+
+Let's talk about approach anxiety。 As someone who's taught pickup for 15 years。
+
+ approach anxiety is kind of an interesting dilemma， because on one hand。It's very， very real。
+
+ On the other hand， it's complete bullshit。When I was growing up in learning pickup， I had very。
+
+ very bad approach anxiety for a very long time。 I wanted to talk to tons of girls up to the age of 18。
+
+ and I never did。 And I would always give myself an excuse。
+
+ I always figure she's busy or I didn't know what to say or she's not hot enough。
+
+ even though she very often clearly was I would find an excuse I'd find a reason not to。
+
+ And it was probably the single biggest hurdle that kept me from getting good with girls。
+
+ I was holding myself back。 So in that sense， it's very， very real。 In another sense。
+
+ approach anxiety is very unreal or very much bullshit。
+
+ and I can say this because every single time I've had someone on program with approach anxiety through enough desire。
+
+ motivation， social pressure put on them they've been able to get over， approach anxiety。
+
+ It it's never been a hurdle that' that's insurmountable。
+
+ So it clearly is something that it is very much in your head。
+
+ It's not something that kind of exists in the real world。 but it is a very real dilemma。
+
+ And to be fair， it comes from a very real place。 where approach anxiety。
+
+Comes from is the fact that we evolved in small tribes。
+
+ We evolved around where we grew up around the same people for our entire lives and doing something socially stupid or socially awkward could have very negative ramifications for us。
+
+ Imagine， for example， you're living in a small tribe。
+
+ hottest girl in the tribe is the wife of the chief and you go approach her especially if you approach her badly。
+
+ but even any approach to her could be caused for him either killing you or throwing you out from the tribe into the desert or the forest or wherever you live to likely die So there is a very strong fear that does come from an evolutionary place。
+
+ that said nowadays in the 21st century in a very safe world。
+
+ that fear kind of doesn't make sense in is kind of bullshit。Okay。
+
+ so I want you to understand that approach anxiety really， It does't make sense。
+
+ You're not a bad person for having it。 You're not like less of a man for having approach anxiety。
+
+ There is an evolutionary cause。 However， understand that it is very irrational。
+
+ It doesn't really make sense right now。 I'll tell you it's like any fear。
+
+ right any fear comes from a natural place， but is maybe unfounded in certain cases。
+
+ I remember as a kid the first time I went up and I dove off the high diving board I actually technically jumped off because you know diving is even scarier。
+
+ I got up there， I walked to the very end of the board。 and I looked down。
+
+ I was so terrified that I walked back and climbed back down the stairs with everybody in the entire pool looking because I was so scared。
+
+ So but then actually once I finally convinced myself to jump off the diving board。
+
+ It was so much fun。 I wanted to go again and again and again。
+
+ and approach anxiety really should be that same way for you。 it's fear。
+
+ but that fear is it's adrenaline excitement and that can be a positive thing as well。
+
+ So what I'm gonna do。From here through the rest of the approach anxiety course is I'm going give you five different ways of looking at approach anxiety。
+
+ some physical， some philosophical， some physiological will deal with exactly how to Rick it down and what approaches we can take to overcoming approach anxiety。
+
+ And then we have two different action courses。 One action course is for those of you who have not done very many approaches and you do what I call progressive desensitization。
+
+ build up through experiences that are fairly easy to a little bit harder to a little bit harder until you're doing an approach。
+
+ And then the second is for those of you who have done approaches。
+
+ but you still get approach anxiety in various circumstances there are certain things like a normal approaches isn and a big deal but maybe approaching a girl in a group or grow with a guy or grow with people watching you those can be scary for you。
+
+ So that's the second level of the sort of action course that we have so that's what we have we have the five philosophical and and physiological the five solutions So speak the sort of global solutions to approach anxiety。
+
+ And then we have the two。8 module courses that give you actual missions for overcoming you。
+
+ So I'm not gonna to go too much deeper on this video。 I'm gonna kind of dive into it。
+
+ But I want you to know Numb one， approach anxiety is totally normal。 Number two。
+
+ it's completely in your head。 And number three， it's completely overcomeable。
+
+ So stick with me on this course and we're gonna get you through it。
+
