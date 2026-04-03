@@ -75,6 +75,7 @@
 +   [教父](docs/jiaofu/README.md)
 +   [嘉琪](docs/jiaqi/README.md)
 +   [解忧课堂](docs/jie-you/README.md)
++   [经典系列](docs/jingdian-xilie/README.md)
 +   [鸡腿哥](docs/jitui/README.md)
 +   [卡卡](docs/ka-ka/README.md)
 +   [凯男](docs/kainan/README.md)
