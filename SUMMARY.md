@@ -72,6 +72,7 @@
 +   [胡哥](docs/huge/README.md)
 +   [馄饨哥](docs/hun-dun-ge/README.md)
 +   [混沌哥](docs/hundunge/README.md)
++   [iBooker 布客老实人报](docs/ipd/README.md)
 +   [嘉琪](docs/jia-qi/README.md)
 +   [教父](docs/jiaofu/README.md)
 +   [嘉琪](docs/jiaqi/README.md)

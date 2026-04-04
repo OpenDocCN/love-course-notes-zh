@@ -1,0 +1,166 @@
+<!DOCTYPE html>
+<html>
+
+<head>
+    <title>404,您访问的页面已经不存在!</title>
+    <meta charset="utf-8"/>
+    <meta name="renderer" content="webkit"> 
+    <meta http-equiv="X-UA-Compatible" content="IE=Edge,chrome=1"/>
+    <meta name="viewport" content="width=device-width, initial-scale=1,maximum-scale=1" />
+    <meta name="data-spm" content="smpc">
+    <link rel="icon" href="//47f72d130392f.cdn.sohucs.com/web/static/images/pic/sohu-logo/favicon.ico" type="image/x-icon"/>
+    <link rel="shortcut icon" href="//47f72d130392f.cdn.sohucs.com/web/static/images/pic/sohu-logo/favicon.ico" type="image/x-icon"/>
+    <link rel="apple-touch-icon" sizes="57x57" href="//47f72d130392f.cdn.sohucs.com/web/static/images/pic/sohu-logo/logo-57.png" />
+    <link rel="apple-touch-icon" sizes="72x72" href="//47f72d130392f.cdn.sohucs.com/web/static/images/pic/sohu-logo/logo-72.png" />
+    <link rel="apple-touch-icon" sizes="114x114" href="//47f72d130392f.cdn.sohucs.com/web/static/images/pic/sohu-logo/logo-114.png" />
+    <link rel="apple-touch-icon" sizes="144x144" href="//47f72d130392f.cdn.sohucs.com/web/static/images/pic/sohu-logo/logo-144.png" />
+    <link href="//47f72d130392f.cdn.sohucs.com/web/static/css/main-cf95bf42d5.css" rel="stylesheet"/>
+    <script>
+        //  加载监控代码
+    </script>
+    <!--[if lt IE 9]>
+    <script src="//47f72d130392f.cdn.sohucs.com/web/static/js/es5-shim-08e41cfc3e.min.js"></script>
+    <script src="//47f72d130392f.cdn.sohucs.com/web/static/js/es5-sham-1d5fa1124b.min.js"></script>
+    <script src="//47f72d130392f.cdn.sohucs.com/web/static/js/html5shiv-21fc8c2ba6.js"></script>
+    <link href="//47f72d130392f.cdn.sohucs.com/web/static/css/ie8hack-9dce3c3b96.css" rel="stylesheet" />
+    <![endif]-->
+    <script type="text/javascript">
+    //解決IE8,IE9不支持console的问题
+    (function() {
+        var method;
+        var noop = function() {};
+        var methods = [
+            'assert', 'clear', 'count', 'debug', 'dir', 'dirxml', 'error',
+            'exception', 'group', 'groupCollapsed', 'groupEnd', 'info', 'log',
+            'markTimeline', 'profile', 'profileEnd', 'table', 'time', 'timeEnd',
+            'timeStamp', 'trace', 'warn'
+        ];
+        var length = methods.length;
+        var console = (window.console = window.console || {});
+
+        while (length--) {
+            method = methods[length];
+
+            // Only stub undefined methods.
+            if (!console[method]) {
+                console[method] = noop;
+            }
+        }
+    }());
+    </script>
+    <script type="text/javascript">
+        (function () {
+            var html = document.getElementsByTagName("html")[0];
+            var width = Math.min(document.documentElement.clientWidth, 790);
+            width = width < 320 ? 320 : width;
+            if (document.documentElement.clientWidth <= 1024) {
+                html.style.fontSize = width / 790 * 79 + 'px';
+            }
+            if (window.addEventListener) {
+                window.addEventListener('resize', resizeHandler);
+            }
+            else if (window.attachEvent) {
+                window.attachEvent('onresize', resizeHandler);
+            }
+            function resizeHandler() {
+                if (document.documentElement.clientWidth <= 1024) {
+                    var width = Math.min(document.documentElement.clientWidth, 790);
+                    width = width < 320 ? 320 : width;
+                    html.style.fontSize = width / 790 * 79 + 'px';
+                } else {
+                    html.style.fontSize = "16px";
+                }
+            };
+        })();
+    </script>
+
+</head>
+<body class="error-index" data-spm="404">
+
+    <div class="wrapper-box">
+        <header id="main-header" class="error-head">
+
+
+            <div class="area">
+                <div class="head-nav left">
+                    <ul>
+                        <li class="index"><a href="//www.sohu.com"><em class="icon-home icon"></em><em class="sohu-logo">搜狐首页</em></a></li>
+                        <li><a href="http://news.sohu.com/">新闻</a></li>
+                        <li><a href="http://sports.sohu.com/">体育</a></li>
+                        <li><a href="http://auto.sohu.com/">汽车</a></li>
+                        <li><a href="http://www.focus.cn/">房产</a></li>
+                        <li><a href="http://travel.sohu.com/">旅游</a></li>
+                        <li><a href="http://learning.sohu.com/">教育</a></li>
+                        <li><a href="http://fashion.sohu.com/">时尚</a></li>
+                        <li><a href="http://it.sohu.com/">科技</a></li>
+                        <li><a href="http://business.sohu.com/">财经</a></li>
+                        <li><a href="http://yule.sohu.com/">娱乐</a></li>
+                        <li class="more-nav"><a href="javascript:void(0)">更多<em class="cor"></em></a>
+                            <div class="more-nav-box">
+                                <a href="http://baobao.sohu.com/">母婴</a>
+                                <a href="http://health.sohu.com/">健康</a>
+                                <a href="http://history.sohu.com/">历史</a>
+                                <a href="http://mil.sohu.com/">军事</a>
+                                <a href="http://chihe.sohu.com/">美食</a>
+                                <a href="http://cul.sohu.com/">文化</a>
+                                <a href="http://astro.sohu.com/">星座</a>
+                                <a href="http://society.sohu.com/">社会</a>
+                                <a href="http://game.sohu.com/">游戏</a>
+                                <a href="http://fun.sohu.com/">搞笑</a>
+                                <a href="http://acg.sohu.com/">动漫</a>
+                                <a href="http://pets.sohu.com/">宠物</a>
+                            </div>
+                        </li>
+                    </ul>
+                </div>
+                <div id="head-login" class="right login">
+                </div>
+            </div>
+
+        </header>
+
+
+
+        <div class="area clear">
+            <div class="err404">
+                <h4>您访问的页面不见了！</h4>
+                <div id="countdown" class="countdown"><em class="countdown-now">3</em>秒后您将</div>
+                <h5><a href="/" class="go-sohu">去搜狐首页</a></h5>
+            </div>
+        </div>
+
+        <footer>
+            <div id="foot" class="area"><a href="javascript:void(0)"
+                                        onClick="this.style.behavior='url(#default#homepage)';this.setHomePage('http://www.sohu.com');return false;">
+                设置首页
+            </a>
+                - <a href="http://pinyin.sogou.com/" target="_blank">搜狗输入法</a>
+                - <a href="http://up.sohu.com/" target="_blank">支付中心</a>
+                - <a href="http://hr.sohu.com" target="_blank">搜狐招聘</a>
+                - <a href="http://ad.sohu.com/" target="_blank">广告服务</a>
+                - <a href="http://sohucallcenter.blog.sohu.com/" target="_blank">客服中心</a>
+                - <a href="http://corp.sohu.com/s2006/contactus/" target="_blank">联系方式</a>
+                - <a href="http://www.sohu.com/about/privacy.html" target="_blank">保护隐私权</a>
+                - <a href="http://investors.sohu.com/" target="_blank">About SOHU</a>
+                - <a href="http://corp.sohu.com/indexcn.shtml" target="_blank">公司介绍</a>
+                <br/>Copyright <span class="fontArial">&copy;</span> 2016 Sohu.com Inc. All Rights Reserved. 搜狐公司
+                <span class="unline"><a href="http://corp.sohu.com/s2007/copyright/" target="_blank">版权所有</a></span>
+                <br/>违法和不良信息举报电话：86-10-58511234 举报邮箱：<a href="mailto:jubao@contact.sohu.com">jubao@contact.sohu.com</a>
+            </div>
+
+        </footer>
+    </div>
+
+    <script src="//47f72d130392f.cdn.sohucs.com/web/static/js/lib-111eab4f1d.js"></script>
+    <!--<script src="//47f72d130392f.cdn.sohucs.com/web/static/js/ie8hack-07e05e83f1.js"></script>-->
+    <script src="//txt.go.sohu.com/ip/soip"></script>
+    <script src="//47f72d130392f.cdn.sohucs.com/web/static/js/main-accd3eadc2.js"></script>
+    <script src="//js.sohu.com/pv.js"></script>
+    <script src="//statics.itc.cn/spm/prod/js/1.0.2/index.js"></script>
+    <script>
+        sohu_mp["404"]();
+
+    </script>
+</body>
+
+</html>
