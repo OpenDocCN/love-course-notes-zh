@@ -114,6 +114,7 @@
 +   [麦克斯](docs/mai-ke-si/README.md)
 +   [麦子](docs/maizi/README.md)
 +   [马克](docs/make/README.md)
++   [ManlyMenBlog 博客中文翻译](docs/manlymen/README.md)
 +   [猫先生](docs/mao/README.md)
 +   [猫爵士](docs/maojueshi/README.md)
 +   [猫叔](docs/maoshu/README.md)
