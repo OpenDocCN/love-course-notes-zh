@@ -1,0 +1,581 @@
+<!DOCTYPE html>
+<html lang="en-US">
+<head>
+	<meta charset="UTF-8" />
+<meta http-equiv="X-UA-Compatible" content="IE=edge">
+	<link rel="pingback" href="https://calebjones.com/xmlrpc.php" />
+
+	<script type="text/javascript">
+		document.documentElement.className = 'js';
+	</script>
+	
+	<script>var et_site_url='https://calebjones.com';var et_post_id='0';function et_core_page_resource_fallback(a,b){"undefined"===typeof b&&(b=a.sheet.cssRules&&0===a.sheet.cssRules.length);b&&(a.onerror=null,a.onload=null,a.href?a.href=et_site_url+"/?et_core_page_resource="+a.id+et_post_id:a.src&&(a.src=et_site_url+"/?et_core_page_resource="+a.id+et_post_id))}
+</script><title>404 Not Found | Caleb Jones</title>
+<meta name='robots' content='max-image-preview:large' />
+<link rel="alternate" type="application/rss+xml" title="Caleb Jones &raquo; Feed" href="https://calebjones.com/feed/" />
+<link rel="alternate" type="application/rss+xml" title="Caleb Jones &raquo; Comments Feed" href="https://calebjones.com/comments/feed/" />
+<script type="text/javascript">
+window._wpemojiSettings = {"baseUrl":"https:\/\/s.w.org\/images\/core\/emoji\/14.0.0\/72x72\/","ext":".png","svgUrl":"https:\/\/s.w.org\/images\/core\/emoji\/14.0.0\/svg\/","svgExt":".svg","source":{"concatemoji":"https:\/\/calebjones.com\/wp-includes\/js\/wp-emoji-release.min.js?ver=6.1.1"}};
+/*! This file is auto-generated */
+!function(e,a,t){var n,r,o,i=a.createElement("canvas"),p=i.getContext&&i.getContext("2d");function s(e,t){var a=String.fromCharCode,e=(p.clearRect(0,0,i.width,i.height),p.fillText(a.apply(this,e),0,0),i.toDataURL());return p.clearRect(0,0,i.width,i.height),p.fillText(a.apply(this,t),0,0),e===i.toDataURL()}function c(e){var t=a.createElement("script");t.src=e,t.defer=t.type="text/javascript",a.getElementsByTagName("head")[0].appendChild(t)}for(o=Array("flag","emoji"),t.supports={everything:!0,everythingExceptFlag:!0},r=0;r<o.length;r++)t.supports[o[r]]=function(e){if(p&&p.fillText)switch(p.textBaseline="top",p.font="600 32px Arial",e){case"flag":return s([127987,65039,8205,9895,65039],[127987,65039,8203,9895,65039])?!1:!s([55356,56826,55356,56819],[55356,56826,8203,55356,56819])&&!s([55356,57332,56128,56423,56128,56418,56128,56421,56128,56430,56128,56423,56128,56447],[55356,57332,8203,56128,56423,8203,56128,56418,8203,56128,56421,8203,56128,56430,8203,56128,56423,8203,56128,56447]);case"emoji":return!s([129777,127995,8205,129778,127999],[129777,127995,8203,129778,127999])}return!1}(o[r]),t.supports.everything=t.supports.everything&&t.supports[o[r]],"flag"!==o[r]&&(t.supports.everythingExceptFlag=t.supports.everythingExceptFlag&&t.supports[o[r]]);t.supports.everythingExceptFlag=t.supports.everythingExceptFlag&&!t.supports.flag,t.DOMReady=!1,t.readyCallback=function(){t.DOMReady=!0},t.supports.everything||(n=function(){t.readyCallback()},a.addEventListener?(a.addEventListener("DOMContentLoaded",n,!1),e.addEventListener("load",n,!1)):(e.attachEvent("onload",n),a.attachEvent("onreadystatechange",function(){"complete"===a.readyState&&t.readyCallback()})),(e=t.source||{}).concatemoji?c(e.concatemoji):e.wpemoji&&e.twemoji&&(c(e.twemoji),c(e.wpemoji)))}(window,document,window._wpemojiSettings);
+</script>
+<meta content="Divi v.4.4.7" name="generator"/><style type="text/css">
+img.wp-smiley,
+img.emoji {
+	display: inline !important;
+	border: none !important;
+	box-shadow: none !important;
+	height: 1em !important;
+	width: 1em !important;
+	margin: 0 0.07em !important;
+	vertical-align: -0.1em !important;
+	background: none !important;
+	padding: 0 !important;
+}
+</style>
+	<link rel='stylesheet' id='wp-block-library-css' href='https://calebjones.com/wp-includes/css/dist/block-library/style.min.css?ver=6.1.1' type='text/css' media='all' />
+<link rel='stylesheet' id='classic-theme-styles-css' href='https://calebjones.com/wp-includes/css/classic-themes.min.css?ver=1' type='text/css' media='all' />
+<style id='global-styles-inline-css' type='text/css'>
+body{--wp--preset--color--black: #000000;--wp--preset--color--cyan-bluish-gray: #abb8c3;--wp--preset--color--white: #ffffff;--wp--preset--color--pale-pink: #f78da7;--wp--preset--color--vivid-red: #cf2e2e;--wp--preset--color--luminous-vivid-orange: #ff6900;--wp--preset--color--luminous-vivid-amber: #fcb900;--wp--preset--color--light-green-cyan: #7bdcb5;--wp--preset--color--vivid-green-cyan: #00d084;--wp--preset--color--pale-cyan-blue: #8ed1fc;--wp--preset--color--vivid-cyan-blue: #0693e3;--wp--preset--color--vivid-purple: #9b51e0;--wp--preset--gradient--vivid-cyan-blue-to-vivid-purple: linear-gradient(135deg,rgba(6,147,227,1) 0%,rgb(155,81,224) 100%);--wp--preset--gradient--light-green-cyan-to-vivid-green-cyan: linear-gradient(135deg,rgb(122,220,180) 0%,rgb(0,208,130) 100%);--wp--preset--gradient--luminous-vivid-amber-to-luminous-vivid-orange: linear-gradient(135deg,rgba(252,185,0,1) 0%,rgba(255,105,0,1) 100%);--wp--preset--gradient--luminous-vivid-orange-to-vivid-red: linear-gradient(135deg,rgba(255,105,0,1) 0%,rgb(207,46,46) 100%);--wp--preset--gradient--very-light-gray-to-cyan-bluish-gray: linear-gradient(135deg,rgb(238,238,238) 0%,rgb(169,184,195) 100%);--wp--preset--gradient--cool-to-warm-spectrum: linear-gradient(135deg,rgb(74,234,220) 0%,rgb(151,120,209) 20%,rgb(207,42,186) 40%,rgb(238,44,130) 60%,rgb(251,105,98) 80%,rgb(254,248,76) 100%);--wp--preset--gradient--blush-light-purple: linear-gradient(135deg,rgb(255,206,236) 0%,rgb(152,150,240) 100%);--wp--preset--gradient--blush-bordeaux: linear-gradient(135deg,rgb(254,205,165) 0%,rgb(254,45,45) 50%,rgb(107,0,62) 100%);--wp--preset--gradient--luminous-dusk: linear-gradient(135deg,rgb(255,203,112) 0%,rgb(199,81,192) 50%,rgb(65,88,208) 100%);--wp--preset--gradient--pale-ocean: linear-gradient(135deg,rgb(255,245,203) 0%,rgb(182,227,212) 50%,rgb(51,167,181) 100%);--wp--preset--gradient--electric-grass: linear-gradient(135deg,rgb(202,248,128) 0%,rgb(113,206,126) 100%);--wp--preset--gradient--midnight: linear-gradient(135deg,rgb(2,3,129) 0%,rgb(40,116,252) 100%);--wp--preset--duotone--dark-grayscale: url('#wp-duotone-dark-grayscale');--wp--preset--duotone--grayscale: url('#wp-duotone-grayscale');--wp--preset--duotone--purple-yellow: url('#wp-duotone-purple-yellow');--wp--preset--duotone--blue-red: url('#wp-duotone-blue-red');--wp--preset--duotone--midnight: url('#wp-duotone-midnight');--wp--preset--duotone--magenta-yellow: url('#wp-duotone-magenta-yellow');--wp--preset--duotone--purple-green: url('#wp-duotone-purple-green');--wp--preset--duotone--blue-orange: url('#wp-duotone-blue-orange');--wp--preset--font-size--small: 13px;--wp--preset--font-size--medium: 20px;--wp--preset--font-size--large: 36px;--wp--preset--font-size--x-large: 42px;}.has-black-color{color: var(--wp--preset--color--black) !important;}.has-cyan-bluish-gray-color{color: var(--wp--preset--color--cyan-bluish-gray) !important;}.has-white-color{color: var(--wp--preset--color--white) !important;}.has-pale-pink-color{color: var(--wp--preset--color--pale-pink) !important;}.has-vivid-red-color{color: var(--wp--preset--color--vivid-red) !important;}.has-luminous-vivid-orange-color{color: var(--wp--preset--color--luminous-vivid-orange) !important;}.has-luminous-vivid-amber-color{color: var(--wp--preset--color--luminous-vivid-amber) !important;}.has-light-green-cyan-color{color: var(--wp--preset--color--light-green-cyan) !important;}.has-vivid-green-cyan-color{color: var(--wp--preset--color--vivid-green-cyan) !important;}.has-pale-cyan-blue-color{color: var(--wp--preset--color--pale-cyan-blue) !important;}.has-vivid-cyan-blue-color{color: var(--wp--preset--color--vivid-cyan-blue) !important;}.has-vivid-purple-color{color: var(--wp--preset--color--vivid-purple) !important;}.has-black-background-color{background-color: var(--wp--preset--color--black) !important;}.has-cyan-bluish-gray-background-color{background-color: var(--wp--preset--color--cyan-bluish-gray) !important;}.has-white-background-color{background-color: var(--wp--preset--color--white) !important;}.has-pale-pink-background-color{background-color: var(--wp--preset--color--pale-pink) !important;}.has-vivid-red-background-color{background-color: var(--wp--preset--color--vivid-red) !important;}.has-luminous-vivid-orange-background-color{background-color: var(--wp--preset--color--luminous-vivid-orange) !important;}.has-luminous-vivid-amber-background-color{background-color: var(--wp--preset--color--luminous-vivid-amber) !important;}.has-light-green-cyan-background-color{background-color: var(--wp--preset--color--light-green-cyan) !important;}.has-vivid-green-cyan-background-color{background-color: var(--wp--preset--color--vivid-green-cyan) !important;}.has-pale-cyan-blue-background-color{background-color: var(--wp--preset--color--pale-cyan-blue) !important;}.has-vivid-cyan-blue-background-color{background-color: var(--wp--preset--color--vivid-cyan-blue) !important;}.has-vivid-purple-background-color{background-color: var(--wp--preset--color--vivid-purple) !important;}.has-black-border-color{border-color: var(--wp--preset--color--black) !important;}.has-cyan-bluish-gray-border-color{border-color: var(--wp--preset--color--cyan-bluish-gray) !important;}.has-white-border-color{border-color: var(--wp--preset--color--white) !important;}.has-pale-pink-border-color{border-color: var(--wp--preset--color--pale-pink) !important;}.has-vivid-red-border-color{border-color: var(--wp--preset--color--vivid-red) !important;}.has-luminous-vivid-orange-border-color{border-color: var(--wp--preset--color--luminous-vivid-orange) !important;}.has-luminous-vivid-amber-border-color{border-color: var(--wp--preset--color--luminous-vivid-amber) !important;}.has-light-green-cyan-border-color{border-color: var(--wp--preset--color--light-green-cyan) !important;}.has-vivid-green-cyan-border-color{border-color: var(--wp--preset--color--vivid-green-cyan) !important;}.has-pale-cyan-blue-border-color{border-color: var(--wp--preset--color--pale-cyan-blue) !important;}.has-vivid-cyan-blue-border-color{border-color: var(--wp--preset--color--vivid-cyan-blue) !important;}.has-vivid-purple-border-color{border-color: var(--wp--preset--color--vivid-purple) !important;}.has-vivid-cyan-blue-to-vivid-purple-gradient-background{background: var(--wp--preset--gradient--vivid-cyan-blue-to-vivid-purple) !important;}.has-light-green-cyan-to-vivid-green-cyan-gradient-background{background: var(--wp--preset--gradient--light-green-cyan-to-vivid-green-cyan) !important;}.has-luminous-vivid-amber-to-luminous-vivid-orange-gradient-background{background: var(--wp--preset--gradient--luminous-vivid-amber-to-luminous-vivid-orange) !important;}.has-luminous-vivid-orange-to-vivid-red-gradient-background{background: var(--wp--preset--gradient--luminous-vivid-orange-to-vivid-red) !important;}.has-very-light-gray-to-cyan-bluish-gray-gradient-background{background: var(--wp--preset--gradient--very-light-gray-to-cyan-bluish-gray) !important;}.has-cool-to-warm-spectrum-gradient-background{background: var(--wp--preset--gradient--cool-to-warm-spectrum) !important;}.has-blush-light-purple-gradient-background{background: var(--wp--preset--gradient--blush-light-purple) !important;}.has-blush-bordeaux-gradient-background{background: var(--wp--preset--gradient--blush-bordeaux) !important;}.has-luminous-dusk-gradient-background{background: var(--wp--preset--gradient--luminous-dusk) !important;}.has-pale-ocean-gradient-background{background: var(--wp--preset--gradient--pale-ocean) !important;}.has-electric-grass-gradient-background{background: var(--wp--preset--gradient--electric-grass) !important;}.has-midnight-gradient-background{background: var(--wp--preset--gradient--midnight) !important;}.has-small-font-size{font-size: var(--wp--preset--font-size--small) !important;}.has-medium-font-size{font-size: var(--wp--preset--font-size--medium) !important;}.has-large-font-size{font-size: var(--wp--preset--font-size--large) !important;}.has-x-large-font-size{font-size: var(--wp--preset--font-size--x-large) !important;}
+.wp-block-navigation a:where(:not(.wp-element-button)){color: inherit;}
+:where(.wp-block-columns.is-layout-flex){gap: 2em;}
+.wp-block-pullquote{font-size: 1.5em;line-height: 1.6;}
+</style>
+<link rel='stylesheet' id='db121_socicons-css' href='https://calebjones.com/wp-content/plugins/divi-booster/core/fixes/126-customizer-social-icons/icons.css?ver=3.6.8' type='text/css' media='all' />
+<link rel='stylesheet' id='dbdb-icons-socicon-css' href='https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/style.css?ver=3.6.8' type='text/css' media='all' />
+<link rel='stylesheet' id='wtfdivi-user-css-css' href='https://calebjones.com/wp-content/uploads/wtfdivi/wp_head.css?ver=6.1.1' type='text/css' media='all' />
+<link rel='stylesheet' id='email-subscribers-css' href='https://calebjones.com/wp-content/plugins/email-subscribers/lite/public/css/email-subscribers-public.css?ver=5.0.4' type='text/css' media='all' />
+<link rel='stylesheet' id='divi-style-css' href='https://calebjones.com/wp-content/themes/Divi/style.css?ver=4.4.7' type='text/css' media='all' />
+<link rel='stylesheet' id='dashicons-css' href='https://calebjones.com/wp-includes/css/dashicons.min.css?ver=6.1.1' type='text/css' media='all' />
+<script type='text/javascript' src='https://calebjones.com/wp-includes/js/jquery/jquery.min.js?ver=3.6.1' id='jquery-core-js'></script>
+<script type='text/javascript' src='https://calebjones.com/wp-includes/js/jquery/jquery-migrate.min.js?ver=3.3.2' id='jquery-migrate-js'></script>
+<script type='text/javascript' id='email-subscribers-js-extra'>
+/* <![CDATA[ */
+var es_data = {"messages":{"es_empty_email_notice":"Please enter email address","es_rate_limit_notice":"You need to wait for sometime before subscribing again","es_single_optin_success_message":"Successfully Subscribed.","es_email_exists_notice":"Email Address already exists!","es_unexpected_error_notice":"Oops.. Unexpected error occurred.","es_invalid_email_notice":"Invalid email address","es_try_later_notice":"Please try after some time"},"es_ajax_url":"https:\/\/calebjones.com\/wp-admin\/admin-ajax.php"};
+/* ]]> */
+</script>
+<script type='text/javascript' src='https://calebjones.com/wp-content/plugins/email-subscribers/lite/public/js/email-subscribers-public.js?ver=5.0.4' id='email-subscribers-js'></script>
+<script type='text/javascript' src='https://calebjones.com/wp-content/themes/Divi/core/admin/js/es6-promise.auto.min.js?ver=6.1.1' id='es6-promise-js'></script>
+<script type='text/javascript' id='et-core-api-spam-recaptcha-js-extra'>
+/* <![CDATA[ */
+var et_core_api_spam_recaptcha = {"site_key":"","page_action":{"action":"avoid_the_collapse_how_to_become_hyper_flexible"}};
+/* ]]> */
+</script>
+<script type='text/javascript' src='https://calebjones.com/wp-content/themes/Divi/core/admin/js/recaptcha.js?ver=6.1.1' id='et-core-api-spam-recaptcha-js'></script>
+<link rel="https://api.w.org/" href="https://calebjones.com/wp-json/" /><link rel="EditURI" type="application/rsd+xml" title="RSD" href="https://calebjones.com/xmlrpc.php?rsd" />
+<link rel="wlwmanifest" type="application/wlwmanifest+xml" href="https://calebjones.com/wp-includes/wlwmanifest.xml" />
+<meta name="generator" content="WordPress 6.1.1" />
+	<script>
+	 
+	</script>
+<style>
+/* Display the team member icons */
+.db_pb_team_member_website_icon:before{content:"\e0e3";}
+.db_pb_team_member_email_icon:before{content:"\e010";}
+.db_pb_team_member_instagram_icon:before{content:"\e09a";}
+
+/* Fix email icon hidden by Email Address Encoder plugin */
+ul.et_pb_member_social_links li > span { 
+	display: inline-block !important; 
+}
+</style>
+<style>
+@media only screen and (min-width: 981px) {
+    .et_pb_module.db_inline_form .et_pb_newsletter_fields > p { 
+        flex: auto !important;
+    }
+    .et_pb_module.db_inline_form .et_pb_newsletter_fields p.et_pb_newsletter_field {
+        margin-right: 2%; 
+    }
+}
+</style>
+	<script>
+	jQuery(function($) {
+						if ($('#top-header .socicon-tiktok').length === 0) {
+					$('#top-header .et-social-icons').append("<li class=\"et-social-icon\"><a href=\"https:\/\/www.tiktok.com\/@therealcalebjones\" class=\"icon socicon socicon-tiktok\" alt=\"TikTok\" aria-label=\"TikTok\"><span>TikTok<\/span><\/a><\/li>");
+					$('#top-header .et-extra-social-icons').append("<li class=\"et-extra-social-icon\"><a href=\"https:\/\/www.tiktok.com\/@therealcalebjones\" class=\"et-extra-icon et-extra-icon-background-hover socicon socicon-tiktok\"><\/a><\/li>");
+				}
+				if ($('#footer-bottom .socicon-tiktok').length === 0) {
+					$('#footer-bottom .et-social-icons').append("<li class=\"et-social-icon\"><a href=\"https:\/\/www.tiktok.com\/@therealcalebjones\" class=\"icon socicon socicon-tiktok\" alt=\"TikTok\" aria-label=\"TikTok\"><span>TikTok<\/span><\/a><\/li>");
+					$('#footer-bottom .et-extra-social-icons').append("<li class=\"et-extra-social-icon\"><a href=\"https:\/\/www.tiktok.com\/@therealcalebjones\" class=\"et-extra-icon et-extra-icon-background-hover socicon socicon-tiktok\"><\/a><\/li>");
+				}
+				if ($('.et_slide_in_menu_container .socicon-tiktok').length === 0) {
+					$('.et_slide_in_menu_container .et-social-icons').append("<li class=\"et-social-icon\"><a href=\"https:\/\/www.tiktok.com\/@therealcalebjones\" class=\"icon socicon socicon-tiktok\" alt=\"TikTok\" aria-label=\"TikTok\"><span>TikTok<\/span><\/a><\/li>");
+					$('.et_slide_in_menu_container .et-extra-social-icons').append("<li class=\"et-extra-social-icon\"><a href=\"https:\/\/www.tiktok.com\/@therealcalebjones\" class=\"et-extra-icon et-extra-icon-background-hover socicon socicon-tiktok\"><\/a><\/li>");
+				}
+								if ($('#top-header .socicon-snapchat').length === 0) {
+					$('#top-header .et-social-icons').append("<li class=\"et-social-icon\"><a href=\"https:\/\/www.snapchat.com\/add\/calebjonesalpha\" class=\"icon socicon socicon-snapchat\" alt=\"Snapchat\" aria-label=\"Snapchat\"><span>Snapchat<\/span><\/a><\/li>");
+					$('#top-header .et-extra-social-icons').append("<li class=\"et-extra-social-icon\"><a href=\"https:\/\/www.snapchat.com\/add\/calebjonesalpha\" class=\"et-extra-icon et-extra-icon-background-hover socicon socicon-snapchat\"><\/a><\/li>");
+				}
+				if ($('#footer-bottom .socicon-snapchat').length === 0) {
+					$('#footer-bottom .et-social-icons').append("<li class=\"et-social-icon\"><a href=\"https:\/\/www.snapchat.com\/add\/calebjonesalpha\" class=\"icon socicon socicon-snapchat\" alt=\"Snapchat\" aria-label=\"Snapchat\"><span>Snapchat<\/span><\/a><\/li>");
+					$('#footer-bottom .et-extra-social-icons').append("<li class=\"et-extra-social-icon\"><a href=\"https:\/\/www.snapchat.com\/add\/calebjonesalpha\" class=\"et-extra-icon et-extra-icon-background-hover socicon socicon-snapchat\"><\/a><\/li>");
+				}
+				if ($('.et_slide_in_menu_container .socicon-snapchat').length === 0) {
+					$('.et_slide_in_menu_container .et-social-icons').append("<li class=\"et-social-icon\"><a href=\"https:\/\/www.snapchat.com\/add\/calebjonesalpha\" class=\"icon socicon socicon-snapchat\" alt=\"Snapchat\" aria-label=\"Snapchat\"><span>Snapchat<\/span><\/a><\/li>");
+					$('.et_slide_in_menu_container .et-extra-social-icons').append("<li class=\"et-extra-social-icon\"><a href=\"https:\/\/www.snapchat.com\/add\/calebjonesalpha\" class=\"et-extra-icon et-extra-icon-background-hover socicon socicon-snapchat\"><\/a><\/li>");
+				}
+					});
+	</script>
+	<meta name="viewport" content="width=device-width, initial-scale=1.0, maximum-scale=1.0, user-scalable=0" /><link rel="preload" href="https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.woff2?87visu" as="font" crossorigin>
+<style>
+@font-face {
+  font-family: 'Socicon';
+  src:  url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.eot?87visu');
+  src:  url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.eot?87visu#iefix') format('embedded-opentype'),
+	url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.woff2?87visu') format('woff2'),
+	url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.ttf?87visu') format('truetype'),
+	url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.woff?87visu') format('woff'),
+	url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.svg?87visu#Socicon') format('svg');
+  font-weight: normal;
+  font-style: normal;
+  font-display: block;
+}
+</style>
+		<script>
+jQuery(function($){
+	var revealButtons = {
+		'.rv_button_1': '.rv_element_1'
+	};
+	$.each(revealButtons, function(revealButton, revealElement) {
+		$(revealButton).click(function(e){
+			e.preventDefault();
+			$(revealElement).slideToggle();
+			$(revealButton).toggleClass('rv_button_opened rv_button_closed');
+		});
+	});
+});
+</script><link rel="icon" href="https://calebjones.com/wp-content/uploads/2021/10/sovereign-favicon.png" sizes="32x32" />
+<link rel="icon" href="https://calebjones.com/wp-content/uploads/2021/10/sovereign-favicon.png" sizes="192x192" />
+<link rel="apple-touch-icon" href="https://calebjones.com/wp-content/uploads/2021/10/sovereign-favicon.png" />
+<meta name="msapplication-TileImage" content="https://calebjones.com/wp-content/uploads/2021/10/sovereign-favicon.png" />
+<link rel="stylesheet" id="et-divi-customizer-global-cached-inline-styles" href="https://calebjones.com/wp-content/et-cache/global/et-divi-customizer-global-1671565477609.min.css" onerror="et_core_page_resource_fallback(this, true)" onload="et_core_page_resource_fallback(this)" /><link rel="stylesheet" id="et-core-unified-cpt-42991-cached-inline-styles" href="https://calebjones.com/wp-content/et-cache/42991/et-core-unified-cpt-42991-16715655149401.min.css" onerror="et_core_page_resource_fallback(this, true)" onload="et_core_page_resource_fallback(this)" /></head>
+<body class="error404 et-tb-has-template et-tb-has-footer dbdb_divi_2_4_up et_pb_button_helper_class et_fixed_nav et_show_nav et_secondary_nav_enabled et_primary_nav_dropdown_animation_fade et_secondary_nav_dropdown_animation_fade et_header_style_left et_cover_background et_pb_gutter windows et_pb_gutters3 et_pb_pagebuilder_layout et_right_sidebar et_divi_theme et-db et_minified_js et_minified_css">
+	<svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 0 0" width="0" height="0" focusable="false" role="none" style="visibility: hidden; position: absolute; left: -9999px; overflow: hidden;" ><defs><filter id="wp-duotone-dark-grayscale"><feColorMatrix color-interpolation-filters="sRGB" type="matrix" values=" .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 " /><feComponentTransfer color-interpolation-filters="sRGB" ><feFuncR type="table" tableValues="0 0.49803921568627" /><feFuncG type="table" tableValues="0 0.49803921568627" /><feFuncB type="table" tableValues="0 0.49803921568627" /><feFuncA type="table" tableValues="1 1" /></feComponentTransfer><feComposite in2="SourceGraphic" operator="in" /></filter></defs></svg><svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 0 0" width="0" height="0" focusable="false" role="none" style="visibility: hidden; position: absolute; left: -9999px; overflow: hidden;" ><defs><filter id="wp-duotone-grayscale"><feColorMatrix color-interpolation-filters="sRGB" type="matrix" values=" .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 " /><feComponentTransfer color-interpolation-filters="sRGB" ><feFuncR type="table" tableValues="0 1" /><feFuncG type="table" tableValues="0 1" /><feFuncB type="table" tableValues="0 1" /><feFuncA type="table" tableValues="1 1" /></feComponentTransfer><feComposite in2="SourceGraphic" operator="in" /></filter></defs></svg><svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 0 0" width="0" height="0" focusable="false" role="none" style="visibility: hidden; position: absolute; left: -9999px; overflow: hidden;" ><defs><filter id="wp-duotone-purple-yellow"><feColorMatrix color-interpolation-filters="sRGB" type="matrix" values=" .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 " /><feComponentTransfer color-interpolation-filters="sRGB" ><feFuncR type="table" tableValues="0.54901960784314 0.98823529411765" /><feFuncG type="table" tableValues="0 1" /><feFuncB type="table" tableValues="0.71764705882353 0.25490196078431" /><feFuncA type="table" tableValues="1 1" /></feComponentTransfer><feComposite in2="SourceGraphic" operator="in" /></filter></defs></svg><svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 0 0" width="0" height="0" focusable="false" role="none" style="visibility: hidden; position: absolute; left: -9999px; overflow: hidden;" ><defs><filter id="wp-duotone-blue-red"><feColorMatrix color-interpolation-filters="sRGB" type="matrix" values=" .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 " /><feComponentTransfer color-interpolation-filters="sRGB" ><feFuncR type="table" tableValues="0 1" /><feFuncG type="table" tableValues="0 0.27843137254902" /><feFuncB type="table" tableValues="0.5921568627451 0.27843137254902" /><feFuncA type="table" tableValues="1 1" /></feComponentTransfer><feComposite in2="SourceGraphic" operator="in" /></filter></defs></svg><svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 0 0" width="0" height="0" focusable="false" role="none" style="visibility: hidden; position: absolute; left: -9999px; overflow: hidden;" ><defs><filter id="wp-duotone-midnight"><feColorMatrix color-interpolation-filters="sRGB" type="matrix" values=" .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 " /><feComponentTransfer color-interpolation-filters="sRGB" ><feFuncR type="table" tableValues="0 0" /><feFuncG type="table" tableValues="0 0.64705882352941" /><feFuncB type="table" tableValues="0 1" /><feFuncA type="table" tableValues="1 1" /></feComponentTransfer><feComposite in2="SourceGraphic" operator="in" /></filter></defs></svg><svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 0 0" width="0" height="0" focusable="false" role="none" style="visibility: hidden; position: absolute; left: -9999px; overflow: hidden;" ><defs><filter id="wp-duotone-magenta-yellow"><feColorMatrix color-interpolation-filters="sRGB" type="matrix" values=" .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 " /><feComponentTransfer color-interpolation-filters="sRGB" ><feFuncR type="table" tableValues="0.78039215686275 1" /><feFuncG type="table" tableValues="0 0.94901960784314" /><feFuncB type="table" tableValues="0.35294117647059 0.47058823529412" /><feFuncA type="table" tableValues="1 1" /></feComponentTransfer><feComposite in2="SourceGraphic" operator="in" /></filter></defs></svg><svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 0 0" width="0" height="0" focusable="false" role="none" style="visibility: hidden; position: absolute; left: -9999px; overflow: hidden;" ><defs><filter id="wp-duotone-purple-green"><feColorMatrix color-interpolation-filters="sRGB" type="matrix" values=" .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 " /><feComponentTransfer color-interpolation-filters="sRGB" ><feFuncR type="table" tableValues="0.65098039215686 0.40392156862745" /><feFuncG type="table" tableValues="0 1" /><feFuncB type="table" tableValues="0.44705882352941 0.4" /><feFuncA type="table" tableValues="1 1" /></feComponentTransfer><feComposite in2="SourceGraphic" operator="in" /></filter></defs></svg><svg xmlns="http://www.w3.org/2000/svg" viewBox="0 0 0 0" width="0" height="0" focusable="false" role="none" style="visibility: hidden; position: absolute; left: -9999px; overflow: hidden;" ><defs><filter id="wp-duotone-blue-orange"><feColorMatrix color-interpolation-filters="sRGB" type="matrix" values=" .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 .299 .587 .114 0 0 " /><feComponentTransfer color-interpolation-filters="sRGB" ><feFuncR type="table" tableValues="0.098039215686275 1" /><feFuncG type="table" tableValues="0 0.66274509803922" /><feFuncB type="table" tableValues="0.84705882352941 0.41960784313725" /><feFuncA type="table" tableValues="1 1" /></feComponentTransfer><feComposite in2="SourceGraphic" operator="in" /></filter></defs></svg><div id="page-container">
+<div id="et-boc" class="et-boc">
+			
+				<div id="top-header">
+		<div class="container clearfix">
+
+		
+			<div id="et-info">
+							<span id="et-info-phone">Looking For Alpha Male 2.0? Click <a href="https://alphamale20.com" target="_blank">Here</a></span>
+			
+							<a href="mailto:"><span id="et-info-email"></span></a>
+			
+						</div> <!-- #et-info -->
+
+		
+			<div id="et-secondary-menu">
+						</div> <!-- #et-secondary-menu -->
+
+		</div> <!-- .container -->
+	</div> <!-- #top-header -->
+
+
+	<header id="main-header" data-height-onload="66">
+		<div class="container clearfix et_menu_container">
+					<div class="logo_container">
+				<span class="logo_helper"></span>
+				<a href="https://calebjones.com/">
+					<img src="https://calebjones.com/wp-content/uploads/2021/10/sovereign-logo.png" alt="Caleb Jones" id="logo" data-height-percentage="80" />
+				</a>
+			</div>
+					<div id="et-top-navigation" data-height="66" data-fixed-height="40">
+									<nav id="top-menu-nav">
+					<ul id="top-menu" class="nav"><li class="menu-item menu-item-type-custom menu-item-object-custom menu-item-14"><a href="https://calebjones.com/start-here/">Start Here</a></li>
+<li class="menu-item menu-item-type-custom menu-item-object-custom menu-item-15"><a href="https://www.youtube.com/channel/UCA5YSMWjnHKRIRdZa0_-l4g">Videos</a></li>
+<li class="menu-item menu-item-type-custom menu-item-object-custom menu-item-16"><a href="https://alphamale20.kartra.com/page/nkI260">Books &#038; Courses</a></li>
+<li class="menu-item menu-item-type-custom menu-item-object-custom menu-item-17"><a href="https://calebjones.com/blog/">Blog</a></li>
+<li class="menu-item menu-item-type-custom menu-item-object-custom menu-item-18"><a href="https://calebjones.com/podcast/">Podcast</a></li>
+<li class="menu-item menu-item-type-custom menu-item-object-custom menu-item-102"><a href="https://calebjones.com/coaching/">Coaching</a></li>
+<li class="menu-item menu-item-type-custom menu-item-object-custom menu-item-19"><a href="https://calebjones.com/contact-us/">Contact</a></li>
+</ul>					</nav>
+				
+				
+				
+				
+				<div id="et_mobile_nav_menu">
+				<div class="mobile_nav closed">
+					<span class="select_page">Select Page</span>
+					<span class="mobile_menu_bar mobile_menu_bar_toggle"></span>
+				</div>
+			</div>			</div> <!-- #et-top-navigation -->
+		</div> <!-- .container -->
+		<div class="et_search_outer">
+			<div class="container et_search_form_container">
+				<form role="search" method="get" class="et-search-form" action="https://calebjones.com/">
+				<input type="search" class="et-search-field" placeholder="Search &hellip;" value="" name="s" title="Search for:" />				</form>
+				<span class="et_close_search_field"></span>
+			</div>
+		</div>
+	</header> <!-- #main-header -->
+<div id="et-main-area">
+	
+<div id="main-content">
+	<div class="container">
+		<div id="content-area" class="clearfix">
+			<div id="left-area">
+				<article id="post-0" class="et_pb_post not_found post-44211 post type-post status-publish format-standard has-post-thumbnail hentry category-five-flags category-success tag-business tag-five-flags">
+					<div class="entry">
+<!--If no results are found-->
+	<h1 class="not-found-title">No Results Found</h1>
+	<p>The page you requested could not be found. Try refining your search, or use the navigation above to locate the post.</p>
+</div>
+<!--End if no results are found-->				</article> <!-- .et_pb_post -->
+			</div> <!-- #left-area -->
+
+				<div id="sidebar">
+		<div id="block-3" class="et_pb_widget widget_block">
+<div class="is-layout-flow wp-block-group"><div class="wp-block-group__inner-container">
+<h2>Recent Posts</h2>
+
+
+<ul class="wp-block-latest-posts__list wp-block-latest-posts"><li><a class="wp-block-latest-posts__post-title" href="https://calebjones.com/avoid-the-collapse-how-to-become-hyper-flexible/">Avoid the Collapse &#8211; How To Become Hyper-Flexible</a></li>
+<li><a class="wp-block-latest-posts__post-title" href="https://calebjones.com/what-you-dont-understand-about-reducing-your-taxes/">What You Don&#8217;t Understand About Reducing Your Taxes</a></li>
+<li><a class="wp-block-latest-posts__post-title" href="https://calebjones.com/top-5-things-you-must-do-to-be-successful-in-any-business/">Top 5 Things You MUST Do To Be Successful In ANY Business</a></li>
+<li><a class="wp-block-latest-posts__post-title" href="https://calebjones.com/top-10-countries-with-the-worlds-most-beautiful-women/">Top 10 Countries With The World&#8217;s Most Beautiful Women</a></li>
+<li><a class="wp-block-latest-posts__post-title" href="https://calebjones.com/time-management-top-5-ways-to-avoid-distractions/">Time Management &#8211; Top 5 Ways To Avoid Distractions</a></li>
+</ul></div></div>
+</div> <!-- end .et_pb_widget --><div id="block-4" class="et_pb_widget widget_block">
+<div class="is-layout-flow wp-block-group"><div class="wp-block-group__inner-container">
+<h2>Recent Comments</h2>
+
+
+<ol class="wp-block-latest-comments"><li class="wp-block-latest-comments__comment"><article><footer class="wp-block-latest-comments__comment-meta"><span class="wp-block-latest-comments__comment-author">Shura</span> on <a class="wp-block-latest-comments__comment-link" href="https://calebjones.com/economic-predictions-for-every-region-of-the-world/#comment-70904">Economic Predictions for Every Region of the World</a></footer></article></li><li class="wp-block-latest-comments__comment"><article><footer class="wp-block-latest-comments__comment-meta"><span class="wp-block-latest-comments__comment-author">Matthew</span> on <a class="wp-block-latest-comments__comment-link" href="https://calebjones.com/economic-predictions-for-every-region-of-the-world/#comment-70903">Economic Predictions for Every Region of the World</a></footer></article></li><li class="wp-block-latest-comments__comment"><article><footer class="wp-block-latest-comments__comment-meta"><span class="wp-block-latest-comments__comment-author">Masih</span> on <a class="wp-block-latest-comments__comment-link" href="https://calebjones.com/southeast-asia-the-land-of-opportunity/#comment-70154">Southeast Asia – The Land of Opportunity</a></footer></article></li><li class="wp-block-latest-comments__comment"><article><footer class="wp-block-latest-comments__comment-meta"><span class="wp-block-latest-comments__comment-author">Chicago</span> on <a class="wp-block-latest-comments__comment-link" href="https://calebjones.com/dragon-in-colombia/#comment-69331">A Dragon In Colombia</a></footer></article></li><li class="wp-block-latest-comments__comment"><article><footer class="wp-block-latest-comments__comment-meta"><span class="wp-block-latest-comments__comment-author">Jon Daniels</span> on <a class="wp-block-latest-comments__comment-link" href="https://calebjones.com/11-great-countries-to-move-to/#comment-70882">11 Great Countries to Move To</a></footer></article></li></ol></div></div>
+</div> <!-- end .et_pb_widget --><div id="email-subscribers-form-1" class="et_pb_widget widget_email-subscribers-form"><h4 class="widgettitle"> Get Free Email Updates! </h4>
+		<div class="emaillist" id="es_form_f2-n1">
+						<form action="/wp-content/uploads/2016/03/invisalign2.jpg#es_form_f2-n1" method="post" class="es_subscription_form es_shortcode_form" id="es_subscription_form_63bd2ff6d81db" data-source="ig-es">
+								<div class="es-field-wrap"><label><input class="es_required_field es_txt_email ig_es_form_field_email" type="email" name="esfpx_email" value="" placeholder="Enter email address" required="required" /></label></div><input type="hidden" name="esfpx_lists[]" value="46785992bd6c" /><input type="hidden" name="esfpx_lists[]" value="34264c8377b4" /><input type="hidden" name="esfpx_form_id" value="2" />				<input type="hidden" name="es" value="subscribe" />
+				<input type="hidden" name="esfpx_es_form_identifier" value="f2-n1" />
+				<input type="hidden" name="esfpx_es_email_page" value="44211"/>
+				<input type="hidden" name="esfpx_es_email_page_url" value="https://calebjones.com/avoid-the-collapse-how-to-become-hyper-flexible/"/>
+				<input type="hidden" name="esfpx_status" value="Unconfirmed"/>
+				<input type="hidden" name="esfpx_es-subscribe" id="es-subscribe-63bd2ff6d81db" value="3886d78713"/>
+				<label style="position:absolute;top:-99999px;left:-99999px;z-index:-99;"><input type="email" name="esfpx_es_hp_email" class="es_required_field" tabindex="-1" autocomplete="-1" value=""/></label>
+								<input type="submit" name="submit" class="es_subscription_form_submit es_submit_button es_textbox_button" id="es_subscription_form_submit_63bd2ff6d81db" value="Subscribe"/>
+
+				
+				<span class="es_spinner_image" id="spinner-image"><img src="https://calebjones.com/wp-content/plugins/email-subscribers/lite/public/images/spinner.gif" alt="Loading"/></span>
+
+			</form>
+						<span class="es_subscription_message " id="es_subscription_message_63bd2ff6d81db">
+						</span>
+		</div>
+
+		</div> <!-- end .et_pb_widget -->	</div> <!-- end #sidebar -->
+		</div> <!-- #content-area -->
+	</div> <!-- .container -->
+</div> <!-- #main-content -->
+
+	<footer class="et-l et-l--footer">
+			<div class="et_builder_inner_content et_pb_gutters3">
+		<div class="et_pb_section et_pb_section_0_tb_footer et_pb_with_background et_section_regular" >
+				
+				
+				
+				
+					<div class="et_pb_row et_pb_row_0_tb_footer">
+				<div class="et_pb_column et_pb_column_1_2 et_pb_column_0_tb_footer  et_pb_css_mix_blend_mode_passthrough">
+				
+				
+				<div class="et_pb_module et_pb_text et_pb_text_0_tb_footer et_clickable  et_pb_text_align_left et_pb_bg_layout_light">
+				
+				
+				<div class="et_pb_text_inner"><h2><span style="color: #ffffff;">Upcoming</span> Events</h2></div>
+			</div> <!-- .et_pb_text --><div class="et_pb_module et_pb_divider et_pb_divider_0_tb_footer et_pb_divider_position_ et_pb_space"><div class="et_pb_divider_internal"></div></div>
+			</div> <!-- .et_pb_column --><div class="et_pb_column et_pb_column_1_2 et_pb_column_1_tb_footer  et_pb_css_mix_blend_mode_passthrough et-last-child">
+				
+				
+				<div class="et_pb_module et_pb_text et_pb_text_1_tb_footer  et_pb_text_align_left et_pb_bg_layout_light">
+				
+				
+				<div class="et_pb_text_inner"><h2 style="text-align: center;">Resources</h2></div>
+			</div> <!-- .et_pb_text --><div class="et_pb_module et_pb_divider et_pb_divider_1_tb_footer et_pb_divider_position_ et_pb_space"><div class="et_pb_divider_internal"></div></div>
+			</div> <!-- .et_pb_column -->
+				
+				
+			</div> <!-- .et_pb_row --><div class="et_pb_row et_pb_row_1_tb_footer">
+				<div class="et_pb_column et_pb_column_4_4 et_pb_column_2_tb_footer  et_pb_css_mix_blend_mode_passthrough et-last-child">
+				
+				
+				<div class="et_pb_module et_pb_text et_pb_text_2_tb_footer  et_pb_text_align_left et_pb_bg_layout_light">
+				
+				
+				<div class="et_pb_text_inner"><h3>Connect With Me</h3></div>
+			</div> <!-- .et_pb_text --><ul class="et_pb_module et_pb_social_media_follow et_pb_social_media_follow_0_tb_footer clearfix  et_pb_bg_layout_light">
+				
+				
+				<li
+            class='et_pb_social_media_follow_network_0_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-facebook et_pb_social_media_follow_network_0_tb_footer'><a
+              href='https://www.facebook.com/TheCalebJones'
+              class='icon et_pb_with_border'
+              title='Follow on Facebook'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_1_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-instagram et_pb_social_media_follow_network_1_tb_footer'><a
+              href='https://www.instagram.com/therealcalebjones'
+              class='icon et_pb_with_border'
+              title='Follow on Instagram'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_2_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-linkedin et_pb_social_media_follow_network_2_tb_footer'><a
+              href='https://www.linkedin.com/in/calebjones1/'
+              class='icon et_pb_with_border'
+              title='Follow on LinkedIn'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_3_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-twitter et_pb_social_media_follow_network_3_tb_footer'><a
+              href='https://twitter.com/thecalebjones'
+              class='icon et_pb_with_border'
+              title='Follow on Twitter'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_4_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-dbdb-tiktok et_pb_social_media_follow_network_4_tb_footer'><a
+              href='https://www.tiktok.com/@therealcalebjones'
+              class='icon et_pb_with_border'
+              title='Follow on TikTok'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_5_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-dbdb-snapchat et_pb_social_media_follow_network_5_tb_footer'><a
+              href='https://www.snapchat.com/add/calebjonesalpha'
+              class='icon et_pb_with_border'
+              title='Follow on Snapchat'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_6_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-youtube et_pb_social_media_follow_network_6_tb_footer'><a
+              href='https://www.youtube.com/channel/UCA5YSMWjnHKRIRdZa0_-l4g'
+              class='icon et_pb_with_border'
+              title='Follow on Youtube'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_7_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-rss et_pb_social_media_follow_network_7_tb_footer'><a
+              href='https://calebjones.com/podcast/'
+              class='icon et_pb_with_border'
+              title='Follow on RSS'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li>
+			</ul> <!-- .et_pb_counters -->
+			</div> <!-- .et_pb_column -->
+				
+				
+			</div> <!-- .et_pb_row -->
+				
+				
+			</div> <!-- .et_pb_section --><div class="et_pb_section et_pb_section_1_tb_footer et_pb_with_background et_section_regular" >
+				
+				
+				
+				
+					<div class="et_pb_row et_pb_row_2_tb_footer">
+				<div class="et_pb_column et_pb_column_1_2 et_pb_column_3_tb_footer  et_pb_css_mix_blend_mode_passthrough">
+				
+				
+				<div class="et_pb_module et_pb_text et_pb_text_3_tb_footer et_clickable  et_pb_text_align_left et_pb_bg_layout_light">
+				
+				
+				<div class="et_pb_text_inner"><h2 style="text-align: center;"><span style="color: #ffffff;">Upcoming</span> Events</h2></div>
+			</div> <!-- .et_pb_text --><div class="et_pb_module et_pb_divider et_pb_divider_2_tb_footer et_pb_divider_position_ et_pb_space"><div class="et_pb_divider_internal"></div></div>
+			</div> <!-- .et_pb_column --><div class="et_pb_column et_pb_column_1_2 et_pb_column_4_tb_footer  et_pb_css_mix_blend_mode_passthrough et-last-child">
+				
+				
+				<div class="et_pb_module et_pb_text et_pb_text_4_tb_footer  et_pb_text_align_left et_pb_bg_layout_light">
+				
+				
+				<div class="et_pb_text_inner"><h2 style="text-align: center;">Resources</h2></div>
+			</div> <!-- .et_pb_text --><div class="et_pb_module et_pb_divider et_pb_divider_3_tb_footer et_pb_divider_position_ et_pb_space"><div class="et_pb_divider_internal"></div></div>
+			</div> <!-- .et_pb_column -->
+				
+				
+			</div> <!-- .et_pb_row --><div class="et_pb_row et_pb_row_3_tb_footer">
+				<div class="et_pb_column et_pb_column_4_4 et_pb_column_5_tb_footer  et_pb_css_mix_blend_mode_passthrough et-last-child">
+				
+				
+				<div class="et_pb_module et_pb_text et_pb_text_5_tb_footer  et_pb_text_align_left et_pb_bg_layout_light">
+				
+				
+				<div class="et_pb_text_inner"><h3 style="text-align: center;">Connect With Me</h3></div>
+			</div> <!-- .et_pb_text --><ul class="et_pb_module et_pb_social_media_follow et_pb_social_media_follow_1_tb_footer clearfix  et_pb_text_align_center et_pb_bg_layout_light">
+				
+				
+				<li
+            class='et_pb_social_media_follow_network_8_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-facebook et_pb_social_media_follow_network_8_tb_footer'><a
+              href='https://www.facebook.com/TheCalebJones'
+              class='icon et_pb_with_border'
+              title='Follow on Facebook'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_9_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-instagram et_pb_social_media_follow_network_9_tb_footer'><a
+              href='https://www.instagram.com/therealcalebjones'
+              class='icon et_pb_with_border'
+              title='Follow on Instagram'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_10_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-linkedin et_pb_social_media_follow_network_10_tb_footer'><a
+              href='https://www.linkedin.com/in/calebjones1/'
+              class='icon et_pb_with_border'
+              title='Follow on LinkedIn'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_11_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-twitter et_pb_social_media_follow_network_11_tb_footer'><a
+              href='https://twitter.com/thecalebjones'
+              class='icon et_pb_with_border'
+              title='Follow on Twitter'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_12_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-dbdb-tiktok et_pb_social_media_follow_network_12_tb_footer'><a
+              href='https://www.tiktok.com/@therealcalebjones'
+              class='icon et_pb_with_border'
+              title='Follow on TikTok'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_13_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-dbdb-snapchat et_pb_social_media_follow_network_13_tb_footer'><a
+              href='https://www.snapchat.com/add/calebjonesalpha'
+              class='icon et_pb_with_border'
+              title='Follow on Snapchat'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_14_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-youtube et_pb_social_media_follow_network_14_tb_footer'><a
+              href='https://www.youtube.com/channel/UCA5YSMWjnHKRIRdZa0_-l4g'
+              class='icon et_pb_with_border'
+              title='Follow on Youtube'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li><li
+            class='et_pb_social_media_follow_network_15_tb_footer et_pb_social_icon et_pb_social_network_link  et-social-rss et_pb_social_media_follow_network_15_tb_footer'><a
+              href='https://calebjones.com/podcast/'
+              class='icon et_pb_with_border'
+              title='Follow on RSS'
+               target="_blank"><span
+                class='et_pb_social_media_follow_network_name'
+                aria-hidden='true'
+                >Follow</span></a></li>
+			</ul> <!-- .et_pb_counters -->
+			</div> <!-- .et_pb_column -->
+				
+				
+			</div> <!-- .et_pb_row -->
+				
+				
+			</div> <!-- .et_pb_section --><div class="et_pb_section et_pb_section_2_tb_footer et_pb_with_background et_section_regular" >
+				
+				
+				
+				
+					<div class="et_pb_row et_pb_row_4_tb_footer">
+				<div class="et_pb_column et_pb_column_4_4 et_pb_column_6_tb_footer  et_pb_css_mix_blend_mode_passthrough et-last-child">
+				
+				
+				<div class="et_pb_module et_pb_text et_pb_text_6_tb_footer  et_pb_text_align_left et_pb_bg_layout_light">
+				
+				
+				<div class="et_pb_text_inner"><div id="wrapper">
+<footer id="footer" class="footer style_2 no-copyright">
+<div class="copyright_row">
+<div class="container">
+<div class="copyright_row_wr">
+<div class="copyright" style="text-align: center;">© 2021 DCS International LLC and Caleb Jones. All Rights Reserved | Privacy Policy | Terms of Use</div>
+</div>
+</div>
+</div>
+</footer>
+</div>
+<div>
+<div></div>
+</div></div>
+			</div> <!-- .et_pb_text -->
+			</div> <!-- .et_pb_column -->
+				
+				
+			</div> <!-- .et_pb_row -->
+				
+				
+			</div> <!-- .et_pb_section -->		</div><!-- .et_builder_inner_content -->
+	</footer><!-- .et-l -->
+	    </div> <!-- #et-main-area -->
+
+			
+		</div><!-- #et-boc -->
+		</div> <!-- #page-container -->
+
+				<style>
+	.et_pb_slide.db_background_url:hover{
+		cursor:pointer;
+	}
+	</style>
+		<script>
+	jQuery(function($){
+		$(".db_background_url").click(function(){
+			var url = $(this).data('db_background_url');
+			if (url.indexOf('#') == 0 || url.indexOf('.') == 0) {
+				et_pb_smooth_scroll($(url), false, 800);
+			} else {
+				document.location=url;
+			}
+		});
+	});
+	</script>
+	
+	<script type="text/javascript">
+				var et_link_options_data = [{"class":"et_pb_text_0_tb_footer","url":"https:\/\/calebjones.com\/events\/","target":"_self"},{"class":"et_pb_text_3_tb_footer","url":"https:\/\/calebjones.com\/events\/","target":"_self"}];
+			</script>
+	<link rel="preload" href="https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.woff2?87visu" as="font" crossorigin>
+<style>
+@font-face {
+  font-family: 'Socicon';
+  src:  url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.eot?87visu');
+  src:  url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.eot?87visu#iefix') format('embedded-opentype'),
+	url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.woff2?87visu') format('woff2'),
+	url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.ttf?87visu') format('truetype'),
+	url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.woff?87visu') format('woff'),
+	url('https://calebjones.com/wp-content/plugins/divi-booster/core/icons/socicon/fonts/Socicon.svg?87visu#Socicon') format('svg');
+  font-weight: normal;
+  font-style: normal;
+  font-display: block;
+}
+</style>
+		<link rel='stylesheet' id='et-builder-googlefonts-css' href='https://fonts.googleapis.com/css?family=Montserrat:100,100italic,200,200italic,300,300italic,regular,italic,500,500italic,600,600italic,700,700italic,800,800italic,900,900italic&#038;subset=latin,latin-ext' type='text/css' media='all' />
+<script type='text/javascript' id='divi-custom-script-js-extra'>
+/* <![CDATA[ */
+var DIVI = {"item_count":"%d Item","items_count":"%d Items"};
+var et_shortcodes_strings = {"previous":"Previous","next":"Next"};
+var et_pb_custom = {"ajaxurl":"https:\/\/calebjones.com\/wp-admin\/admin-ajax.php","images_uri":"https:\/\/calebjones.com\/wp-content\/themes\/Divi\/images","builder_images_uri":"https:\/\/calebjones.com\/wp-content\/themes\/Divi\/includes\/builder\/images","et_frontend_nonce":"470340e6d3","subscription_failed":"Please, check the fields below to make sure you entered the correct information.","et_ab_log_nonce":"68dc4c84d8","fill_message":"Please, fill in the following fields:","contact_error_message":"Please, fix the following errors:","invalid":"Invalid email","captcha":"Captcha","prev":"Prev","previous":"Previous","next":"Next","wrong_captcha":"You entered the wrong number in captcha.","wrong_checkbox":"Checkbox","ignore_waypoints":"no","is_divi_theme_used":"1","widget_search_selector":".widget_search","ab_tests":[],"is_ab_testing_active":"","page_id":"44211","unique_test_id":"","ab_bounce_rate":"5","is_cache_plugin_active":"no","is_shortcode_tracking":"","tinymce_uri":""}; var et_frontend_scripts = {"builderCssContainerPrefix":"#et-boc","builderCssLayoutPrefix":"#et-boc .et-l"};
+var et_pb_box_shadow_elements = [];
+var et_pb_motion_elements = {"desktop":[],"tablet":[],"phone":[]};
+/* ]]> */
+</script>
+<script type='text/javascript' src='https://calebjones.com/wp-content/themes/Divi/js/custom.unified.js?ver=4.4.7' id='divi-custom-script-js'></script>
+<script type='text/javascript' src='https://calebjones.com/wp-content/themes/Divi/core/admin/js/common.js?ver=4.4.7' id='et-core-common-js'></script>
+<script type='text/javascript' src='https://calebjones.com/wp-content/uploads/wtfdivi/wp_footer.js?ver=6.1.1' id='wtfdivi-user-js-js'></script>
+		
+	</body>
+</html>

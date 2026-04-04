@@ -7,6 +7,7 @@
 +   [艾伦](docs/ailun/README.md)
 +   [爱上情感](docs/aishang/README.md)
 +   [阿尔法情感](docs/alpha/README.md)
++   [AlphaMale2 博客中文翻译](docs/alphamale20/README.md)
 +   [AMG](docs/amg/README.md)
 +   [安小妖](docs/an-xiao-yao/README.md)
 +   [奥客](docs/aoke/README.md)

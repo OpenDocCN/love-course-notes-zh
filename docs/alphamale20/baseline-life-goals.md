@@ -1,0 +1,9 @@
+# 基线生活目标
+
+> 原文：<https://alphamale20.com/2014/05/11/baseline-life-goals/>
+
+每个人都是不同的。每个人都会有不同的人生目标，通常是截然不同的。每个人都想要不同的钱，不同的家庭，不同的职业，想住在不同的地方，等等。这很正常，也可能是最好的结果。(想到如果每个人都有完全相同的生活目标，世界会变成什么样子，我就不寒而栗。)话虽如此，但西方世界的每个人都应该有几个目标。不管你的年龄、性别或性格类型如何，我认为有几个“基本生活目标”是你应该有的，以确保你过着最充实、幸福和平静的生活。这些基线人生目标是:
+
+*   **No *major* health problems before the age of 70\. Problems caused by genes that you can't control are exceptions. This is a true statistic. If you avoid all major health problems (such as cancer, heart disease, etc.) before the age of 70, your life expectancy will suddenly soar above the average. Save enough money by the age of 65, so that you don't have to rely on Social Security or any other government retirement assistance. Everyone in Europe is protesting this issue. We Americans are full of fear and anxiety on this issue. When you need social security, don't worry about whether it is solvent or not. Isn't it great? I think when you are 60, you should have enough money in the bank to consider any government retirement insurance or assistance as a nice bonus, not something you need.**
+
+*   **A fulfilling emotional life. I don't care if you are a man or a woman, gay or straight, married or single, a lover or a player, introverted or extroverted, or whatever. By the time you are in your early 30s at the latest, you need a satisfying love life. This can look like anything you want, as long as it satisfies your *. It won't make any difference to spend a long life alone. Honestly, I can't think of any adult in the western world who doesn't have the above three goals. I also think this is the minimum. I hope you have goals that really excite you beyond these three things .. but you must have at least those three goals, or something that looks very similar.***

@@ -1,0 +1,29 @@
+# 亚历克斯·琼斯被禁
+
+> 原文：<https://alphamale20.com/2018/08/12/alex-jones-banned/>
+
+This entire scenario is a cluster fuck on all sides, no one is in the right, and there are no winners.
+Here are the facts.
+First of all, Alex Jones is either deeply mentally disturbed or a fantastically skilled liar and actor. Either is extremely problematic. Ether way, he can’t be taken seriously, and if you do, there is something very wrong with you.
+Next, the fact that all of these big corporations, who ostensibly are competitors, all banned him all on the same day is deeply disturbing.
+Note that I didn’t say it was *surprising,* just *disturbing.* The fact a popular, unhinged right-winger got banned from major platforms in [a left-wing country like the USA](https://calebjonesblog.com/the-usa-is-a-left-wing-country/) doesn’t surprise me at all (and if it surprises you, again, there is something very wrong with you).
+Yet, it's still disturbing. These gigantic, corporatist entities are obviously colluding in ways that are clearly anti-capitalist and anti-firee market. This is yet another result of the American voter’s embrace of corporatism over the last 25 years. And it will get worse. Just watch.
+It’s quite obvious to me that the mainstream media has an utter hatred of alternative media (YouTube, et. al.) both from the left and the right. I can only imagine entrenched CNN executives seething at this raving lunatic on YouTube screaming about gay frogs and interdimensional child molesters pulling massive market share from their audiences.
+Do these companies have a right to ban Alex Jones, or anyone else they want? Of course they do. Granted, these are corporatist entities and not full free-market entities, but they are still not the government. They are free to ban anyone they like.
+Should they have banned Alex Jones? Of course not. We need more controversial, politically incorrect views in the town square, not less. I agree with very little of what comes out of Alex Jones’ mouth, but that doesn’t matter. He should be allowed to say it with as loud a bullhorn as the free market and his viewership allow. Stifling this free speech is a horrible idea.
+At the same time, Alex Jones should not have been surprised at all that this happened, nor should his followers. Not only has Alex Jones been screaming insane shit for years on end, but he has also defamed innocent people over and over again, which is not only wrong, but has clear and serious legal ramifications. Attacking Sandy Hook parents, misidentifying the Parkland shooter, and on and on, Jones has a long track record of this bullshit. False defamation is serious business, and Alex Jones should, very rightly, be sued into oblivion by these victims and should lose millions.
+But, that’s a civil issue between him and the people he’s wrongly defamed. Companies like YouTube and Facebook should stay out of this and let the dialog play out.
+At the same time, there are all kinds of other content on YouTube, iTunes, Facebook, and so on from the left that is just as vile as Alex Jones that *hasn't been banned*. As a guy who has been a professional blogger for almost a decade, I can tell you that if you ban someone from your website, you need to A) state the very clear and specific reasons why you did it, and B) ban absolutely everyone else who commits these same offenses. You can’t play favorites. If you do, people like me are going to point out how hypocritical you’re being.
+YouTube, Facebook, Apple, and others aren't doing either of these things. They're not clearly defining what Alex Jones did wrong. "Hate speech" doesn't mean anything; you need to clearly and specifically define it, which the left has not done. And they are not applying whatever this nebulous standard is to everyone, just to certain people or companies. It's bullshit.
+Speaking of hypocrites, now we have those on the left who are cheering this move. Wait a minute, left-wingers, didn’t you guys just scream at us that a baker doesn’t have the right to say no to baking a cake for a gay wedding? Okay, then why is it okay for YouTube not to take Alex Jones’ business?
+I agree the right-wing has gone insane (just look at Alex Jones and the people who like him), but you left-wingers are fucking hypocrites.
+You’re also being very stupid if you think that the overly politically correct pantywaists who run YouTube and Facebook aren’t going to come after *your* content next. They are. I’d bet $10,000 on it. So as they say, laugh now, cry later.
+To review,
+1\. Alex Jones is either an unhinged maniac or a highly skilled charlatan. Either way, he should not be taken seriously. Those who do are morons.
+2\. Alex Jones clearly beat the mainstream media at their own game, something the MSM is upset with.
+3\. Corporations have every right to censor people they don’t like on their own platforms for whatever reasons they choose, legal or otherwise. However, if they do this, it is incumbent upon them to be very clear, specific, and public about their reasons, and to censor everyone else with actual audiences for the exact same reasons and not play favorites. Facebook, YouTube, Apple, etc are clearly *not* doing this.
+4\. Neither Alex Jones nor his followers should have been surprised at this happening in this snowflake, politically correct, left-wing era of Western collapse. With his constant crazy shit and rampant defamation against innocent people, Jones was asking for this.
+5\. These corporations should not have done this. Society needs more controversial views espoused and debated, not less.
+6\. Left-wingers who are celebrating this move are *also* morons, since these same corporatist structures will ban them next. Just watch.
+
+> 想要超过 35 个小时的如何改善你的女性生活和财务生活的播客吗？想每月和我一起做两次教练吗？想要获得数小时基于技术的视频和音频？ [SMIC 计划](https://alphamale20.kartra.com/page/vIL17)是一个月度播客和教练计划，只要你注册，你就可以获得大量独家、仅限会员的 Alpha 2.0 内容，并且你可以随时取消。点击[此处](https://alphamale20.kartra.com/page/vIL17)了解详情。

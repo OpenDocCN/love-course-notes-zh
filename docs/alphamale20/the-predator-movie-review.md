@@ -1,0 +1,30 @@
+# 掠夺者电影评论
+
+> 原文：<https://alphamale20.com/2018/09/18/the-predator-movie-review/>
+
+The new movie this week, *The Predator*, is the fourth true Predator movie. Written and directed by one of the best action screenwriters in movie history, Shane Black (who was actually in the first Predator movie; he was Hawkins, the skinny guy with the glasses who told all the jokes), I was super pumped to see *The Predator* and expected it would probably be the best movie this year.
+Was it?
+Uhhh...
+No.
+*The Predator* should have been amazing. Instead it was barely okay.
+Don’t get me wrong; it’s a fun movie I guess, but as compared to the other three Predator movies, it’s a massive disappointment.
+**What I Liked**
+**1\. Predator lore is more or less respected.** It really bothers me when movies completely disregard details from prior movies, and this movie thankfully doesn’t do that. The main Predator in this movie is the Predator we all love and remember. There are also various Easter eggs in the movie for Predator nerds such as me, such as a particular side-character with the last name of “Keyes” played by a particular actor, which made me gasp and point at the screen with a huge smile when they revealed him. Good stuff.
+**2\. The dialog** is very good, of course, since it was written by Shane Black. This is the guy who wrote *Lethal Weapon, The Nice Guys*, *Kiss Kiss Bang Bang*, *The Last Boy Scout*, and so on, so the dialogue was sharp and smart, even the stupid funny stuff.
+**3\. How useless our weapons are against the Predators.** Throughout this entire movie, characters are unloading hails of bullets from M-16s and other heavy weapons and the Predators just ignore them and slice the shit out of the stupid humans trying to hurt them with their silly lead pellets. Seriously, the humans are firing constantly throughout the entire movie, and it doesn’t do shit. It actually gets humorous in the end. The only time the humans actually hurt the Predators in any way is when they use the Predator weapons against them.
+**4\. The little kid in the movie** has some really good scenes, especially the Halloween ones, but I won’t spoil anything.
+**What I Didn’t Like**
+I didn't like *a lot.* Not good.
+**1\. The action was too fast.** Just like most other action or actionish movies today, the action in the movie is good, and there’s plenty of it, but it moves way too fast so sometimes it’s hard to register what’s going on. [*Ready Player One*](https://calebjonesblog.com/ready-player-one-movie-and-book-review/) had the same problem. Hell, just about all movies these days have the same problem. It’s really annoying. Because this is a Predator movie, and you’re accustomed to seeing Predator movies made in the 80s and 90s, this too-fast action really stands out more than in most other films.
+This annoying, overly-fast action style of filmmaking really sucks. I can’t wait until movies finally go back to the 80s style where you can actually see what the hell is going on. The John Wick movies do this, but that’s about it.
+**2\. Too much god damn comedy**, and I know why. Everyone is trying to copy the Marvel movies now. As I’ve mentioned before, the Marvel movies are suffering from a problem where they’re putting in WAY too much comedy, to the point where I couldn’t even enjoy movies like *Guardians of the Galaxy 2* or *Thor Ragnarok*, both of which could have been really good, but they were too silly. The problem is Marvel movies make billions of dollars, so now everyone is going to start shoving all this extreme comedy into movies where it doesn’t belong, like a Predator movie.
+Yes, the other Predator movies add a *little* comedy. A little. This movie is jam-packed full of comedy, even to the point where the Predator himself does funny stuff. It’s completely out of place and badly hurts the tone of the film.
+**3\. No good characters.** There wasn’t a single compelling character in this entire movie, at least not in my opinion. They weren’t bad characters, but they weren’t good either. All three of the other Predator movies had at least *some* characters who were interesting and fun. Not this movie.
+**4\. For fuck's sake, stop it with the “bigger” Predators!** Just like in the last Predator movie, in this movie there is a “bigger” Predator that is the enemy of the “normal” 1980s Predator. This is so predicable and uncreative. It’s another stupid Hollywood trend, where everything has to just be bigger, like in *Star Trek Into Darkness* where the Enterprise fights a “bigger” Enterprise.
+C’mon Hollywood. This is just so fucking dumb and an easy out. Write something interesting with the usual Predators we are accustomed to. That would be such a cool idea.
+The “bigger” Predators in the last movie were at least cool and made sense. The “bigger” Predator in this movie is, of course, even *bigger*, standing at 11 feet tall and looking more like a giant or a dinosaur than a Predator. The normal Predator didn’t have nearly enough screen time. The whole concept just sucked balls. Lazy writing.
+**5\. Various things that made no sense.** Several times, characters or convenient objects would just appear out of nowhere, causing you to say, “Wait… how did she get there?” or “Wait… where/how did they get that?” There’s also a subplot of one of the predators actually trying to do something nice for humanity (I think), yet he goes around murdering everyone. There’s just too many things in this movie that make no sense. Irritating as hell.
+*The Predator* isn’t a bad movie, but compared to the other three Predator movies, two of which were masterpieces, it doesn’t measure up at all, even with the talented Shane Black at the helm.
+Man, what a disappointment.
+
+> 想要超过 35 个小时的如何改善你的女性生活和财务生活的播客吗？想每月和我一起做两次教练吗？想要获得数小时基于技术的视频和音频？ [SMIC 计划](https://alphamale20.kartra.com/page/vIL17)是一个月度播客和教练计划，只要你注册，你就可以获得大量独家、仅限会员的 Alpha 2.0 内容，并且你可以随时取消。点击[此处](https://alphamale20.kartra.com/page/vIL17)了解详情。
